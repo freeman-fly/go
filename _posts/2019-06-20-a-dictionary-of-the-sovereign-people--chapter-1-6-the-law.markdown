@@ -47,7 +47,7 @@ This Writing, is in a Dictionary format, and is in the best “___Kings English_
 
 Page 2 of 95
 
-such as Chisholm vs. Georgia 2 Dall 419 (1793); Lansing vs. Smith 4 Wendell 9,20 (1829); Dred Scott vs. Sanford 60 U.S. 393 (1856); Hennessy vs. Richardson 189 U.S. 25 (1902); also Noah Webster’s Dictionary of the English Language (1828); Bouvier’s Law Dictionaries’ (1840/56/1914) and The Many other Sources of Our Liberties, to name a Few.
+such as ___Chisholm vs. Georgia___ 2 Dall 419 (1793); ___Lansing vs. Smith___ 4 Wendell 9,20 (1829); ___Dred Scott vs. Sanford___ 60 U.S. 393 (1856); ___Hennessy vs. Richardson___ 189 U.S. 25 (1902); also ___Noah Webster’s Dictionary of the English Language (1828); Bouvier’s Law Dictionaries’ (1840/56/1914)___ and The Many other Sources of Our Liberties, to name a Few.
 
 Intent
 
@@ -87,7 +87,7 @@ The _Law_
 
 Page 5 of 95
 
-This writing is based on the Principals of “[T]he” ___American Common Law ___and Truth
+This writing is based on the Principals of “[T]he” ___American Common Law and Truth
 
 July 4 1776, When the Founding Fathers revolted and Shook off theFEARS of self responsibility, and the chains of subjugation on the continent of America, They planted the seed of Individual Sovereign Liberty Here. Once that Seed was Planted, the Fruit of that Seed Produced a Federal Union of Individual Sovereigns. That Federal Union was a “People” descended from the European blood line. Governed by, what they called “The Common Law of England” that was birthed at the signing of Magna Charta (1215). That Seed took 561 years to grow into a ___Sovereignty ___Of, By, and For the “White European People”. This “Common Law” is a Creation of God, that operates Equally upon All of God’s Creatures. It certainly follows that the common law of retribution, Cause and Effect applies to everyone. The following quotes are just a few examples; (1) You Treat your fellow Man/and Woman as you want them to treat You; (2) You Do unto others as You want them to do unto You; (3) What you do to the least of mine, You do to Me (God the Creator); (4) You reap what you sew; An eye for an eye; (5) A pound of flesh for a pound of flesh; But, vengeance is in the hand of God. These are just a few of the Common Laws that the Founding Fathers used in the Creation of this Nation.
 
