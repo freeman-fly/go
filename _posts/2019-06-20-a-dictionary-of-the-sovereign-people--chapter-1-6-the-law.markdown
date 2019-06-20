@@ -14,31 +14,32 @@ slug: a-dictionary-of-the-sovereign-people-
 
 ## Table of Contents-
 
-## Chapter 1………………………...............................…….The Law
+## Chapter 1.........................................The Law
 
-## Chapter 2……….................................……………We the People
+## Chapter 2...................................We the People
 
-## Chapter 3………...............................………….Their Sovereignty
+## Chapter 3...............................Their Sovereignty
 
-## Chapter 4…………...........................……….The People’s Rights
+## Chapter 4.............................The People’s Rights
 
-## Chapter 5………..............................…………The People’s Land
+## Chapter 5...............................The People’s Land
 
-## Chapter 6….............Their GOVERNMENT and it’s PROPERTY
+## Chapter 6..............Their GOVERNMENT and it’s PROPERTY
 
 ---
 
 Page 1 of 95
 
-The Law. The People.. Their Sovereignty… Their Rights…. Their Land….. Their GOVERNMENT and ITS PROPERTY…… “My People are destroyed for lack of Knowledge: because Thou hast refused Knowledge, I will also Refuse Thee that Thou shalt be no Priest to Me: and seeing Thou hast forgotten the Law of Thy God, I will also forget Thy Children.” Geneva 1599. A corrupt system finds its security in the ignorance of the People; Publius
+The Law. The People.. Their Sovereignty… Their Rights…. Their Land….. Their GOVERNMENT and ITS PROPERTY…… 
+“My People are destroyed for lack of Knowledge: because Thou hast refused Knowledge, I will also Refuse Thee that Thou shalt be no Priest to Me: and seeing Thou hast forgotten the Law of Thy God, I will also forget Thy Children.” Geneva 1599. A corrupt system finds its security in the ignorance of the People; Publius
 
 A Treatise on, and Repository for the Principals of the Natural Law taken from The Constitution and Laws of The United States of America and, Their Specific Application to the People as Citizens of the Several States of This American Union With References to the Common and Natural Law of America and Its European Founders. by Publius
 
----
+-----------------------
 
 In the Common Law Republic of California; Established (1849) Created according to Prerogative Right, The American Common Law, and Sovereign Duty for the Education of the Posterity of the Founding Fathers (Federalists), Nunc Pro Tunc from the Year One Thousand Seven Hundred and Seventy Six (1776).
 
----
+-----------------------
 
 Prelude
 
@@ -46,7 +47,7 @@ This Writing, is in a Dictionary format, and is in the best “___Kings English_
 
 Page 2 of 95
 
-such as ___Chisholm vs. Georgia ___2 Dall 419 (1793); ___Lansing vs. Smith ___4 Wendell 9,20 (1829); ___Dred Scott vs. Sanford ___60 U.S. 393 (1856); ___Hennessy vs. Richardson ___189 U.S. 25 (1902); also Noah ___Webster’s Dictionary of the English Language ___(1828); Bouvier’s Law Dictionaries’ (1840/56/1914) and The Many other Sources of Our Liberties, to name a Few.
+such as Chisholm vs. Georgia 2 Dall 419 (1793); Lansing vs. Smith 4 Wendell 9,20 (1829); Dred Scott vs. Sanford 60 U.S. 393 (1856); Hennessy vs. Richardson 189 U.S. 25 (1902); also Noah Webster’s Dictionary of the English Language (1828); Bouvier’s Law Dictionaries’ (1840/56/1914) and The Many other Sources of Our Liberties, to name a Few.
 
 Intent
 
@@ -54,7 +55,7 @@ This is not an attempt at ethnic cleansing; and must not be viewed as racially m
 
 Rules of Engagement and Their Application
 
-This Writing is ___not ___laid out in Alphabetical order, but instead, is in consequence of the evolution of Our Federal System in Time by chronological __Date __from at least Magna Charta, 1215 (Act of defiance by Europeans in Europe) through the Revolution (1776) /revolt of the descendants of Europeans in America, up to its impending demise….
+This Writing is not laid out in Alphabetical order, but instead, is in consequence of the evolution of Our Federal System in Time by chronological Date from at least Magna Charta, 1215 (Act of defiance by Europeans in Europe) through the Revolution (1776)/revolt of the descendants of Europeans in America, up to its impending demise….
 
 Page 3 of 95
 
@@ -129,7 +130,8 @@ The word ‘LEGAL’, is a creation of Man and is not synonymous or equal to the
 When Mans RULE as written, does not acknowledge ___Gods Law___, or fails to identify the Path to ___Gods Law___, it is a WRONG, or simply an incomplete LEGAL RULE.
 
 The rules of MAN, with the exception of The Constitution(1788), have always been identified as, a ‘CODE’; but, there is a ___Law___ful Statute upon the Books of the California Republic that was later codified as THE CALIFORNIA MOTOR VEHICLE CODE, that not only identifies the LEGAL licensable activity and the license FEE associated therewith, but, this Statute also shows and distinguishes that LEGAL licensable COMMERCIAL activity from the Constitutionally Secured ___Lawfuly Exempted Prerogative Unalienable Right of Liberty ___secured to the ___Posterity ___under ___Gods Law___. AND THE REVOLT(1776) The following is an actual quote taken from that Statute, ___but unfortunately, like most other statutes, fails to cite its specific Constitutional Authority:  
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\____
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\____
 
 Ch. 412] FORTY-SIXTH SESSION 833
 
@@ -390,7 +392,8 @@ So just what is “BANKING”????? The principal aim of “BANKING” is, and al
 When does “LEGAL TENDER” paper, as found on a private “FEDERAL RESERVE NOTE”, become “Lawful Money” as identified in the Constitution as gold and silver Coin??? It doesn’t, because the FEDERAL RESERVE is PRIVATE, and is not found anywhere in the Constitution over any one of the several States or their People. But, if that paper was issued by act of congress as applied to the States, it would say in the first line of the paper, “United States Note”, and would then follow as “Redeemable” and Only, When that paper is redeemable in the real, constitutionally struck, under the power of Article I, § 8 Cl. 5, by the U.S. Mint, as in certified gold and silver Coin, and not otherwise.
 
 Script:  
-1st&nbsp;, Find a system where the People have a gold and silver monitory standard???!!!! The United States of America and a bunch of ignorant People who don’t understand the American Common Law;
+
+1st&nbsp;, Find a system where the People have a gold and silver monitory standard???!!!! The United States of America and a bunch of ignorant People who don’t understand the American Common Law;
 
 Page 30 of 95
 
@@ -419,7 +422,8 @@ refusal to incriminate Himself, and the Immunity of Himself and His Property fro
 (Emphasis added)Capitalization corrected!
 
 They have converted the Unalienable Right to Liberty by the People to travel upon their Public Right of Way and to transport his Private Property or Private Persons thereon, into a licensable, taxable, insurable, criminally punishable “COMMERCIAL PRIVILEGE OF OPERATING A ‘MOTOR VEHICLE, SUBJECT TO A MOTOR VEHICLE CODE DESIGNED for the specific purpose TO REGULATE the COMMERCIAL ACT of transporting persons and or property for hire, PROFIT OR GAIN with the general public. See En re: Stork; 1925 exemption; 18 USC §31 supra  
----------------------------------------------------------------------------------------------
+
+---------------------------------------------------------------------------------------------
 
 Chapter 2………………….We The People
 
