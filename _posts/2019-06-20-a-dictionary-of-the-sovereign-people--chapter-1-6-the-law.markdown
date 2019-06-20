@@ -418,4 +418,870 @@ refusal to incriminate Himself, and the Immunity of Himself and His Property fro
 
 (Emphasis added)Capitalization corrected!
 
-They have converted the Unalienable Right to Liberty by the People to travel upon their Public Right of Way and to transport his Private Property or Private Persons thereon, into a licensable, taxable, insurable, criminally punishable “COMMERCIAL PRIVILEGE OF OPERATING A ‘MOTOR VEHICLE, SUBJECT TO A MOTOR VEHICLE CODE DESIGNED for the specific purpose TO REGULATE the COMMERCIAL ACT of transporting persons and or property for hire, PROFIT OR GAIN with the general public. See En re: Stork; 1925 exemption; 18 USC §31 supra
+They have converted the Unalienable Right to Liberty by the People to travel upon their Public Right of Way and to transport his Private Property or Private Persons thereon, into a licensable, taxable, insurable, criminally punishable “COMMERCIAL PRIVILEGE OF OPERATING A ‘MOTOR VEHICLE, SUBJECT TO A MOTOR VEHICLE CODE DESIGNED for the specific purpose TO REGULATE the COMMERCIAL ACT of transporting persons and or property for hire, PROFIT OR GAIN with the general public. See En re: Stork; 1925 exemption; 18 USC §31 supra  
+---------------------------------------------------------------------------------------------
+
+Chapter 2………………….We The People
+
+We The People
+
+Words and Phrases following the Revolution, and strictly Applicable to the _People _of the United States of America from Magna Charta (1215) following the CIVIL WAR, and just preceding the CIVIL RIGHTS ACT, June 16, 1866.
+
+___“The Best Kings English”___; the Best example of the use of the ___Kings English ___can be found in the Original Script version of the Original Constitution of the ___United States of America, (1788) ___and or its “___Literal Print___” previously referenced in Rule 1.
+
+___“People”___; [Proper Noun, First Letter Capitalized] From the Revolution of 1776, and throughout the Sovereign States, the word “People”, as used in the Preamble and throughout the Constitution of and
+
+Page 33 of 95
+
+for the United States of America (1788), and the Federalist Papers, is synonymous with the phrase “Citizen of the State”, who, in their collective Capacity, formed the Political Sovereignty of the United States of America; and as an Individual Private Citizen, enjoy His/Her Private, Prerogatives and Sovereignty; ___Chisholm vs. Georgia ___2 Dall 419 (1793) citing the word “People” 81 times; also see ___Martin vs. Hunter ___14 U.S. 304 (1816); and, ___Lansing vs. Smith ___4 Wendell 9,20 (1829); ___Dred Scott vs. Sanford ___60 U.S. 393 (1856). The word “___People___” appears no less than ___620 ___times in the Federalists Papers; 39 times in the Constitution of California 1849; and 3 times in the original Constitution of the United States of America (1788). These People and Their Posterity, not Their government, have the Exclusive Prerogative Right and Sovereign Power to determine the Qualifications of Their Peers; See authorities from Article 9 of Confederation; Steiner v. Darby &amp; c.. Attached in the body of tabbed exhibits;
+
+__“American” __Proper Noun; ___In the United States of America___, A native of America; originally applied to the aboriginals or copper colored race found here by the Europeans; but now applied to the descendants of Europeans born in America. Noah (1828); the change is directly associated to the new Sovereign over America commonly called, “Europeans”; __“Europe” __Proper Noun; [Bochart supposes this word to be composed of white face, the land of ___White People___, as distinguished from the Ethiopians, black-faced people, or tawny inhabitants of Asia and Africa.] Noah (1828); The word “___Europe” and “European___”, meaning “___White___”, was used no less than 54 times in the Federalists Papers; the Word White only once in the Articles of Confederation; the word White appears Three times in the 1849 California Constitution. Prior to the Civil Rights Acts, and pre banking, the word “White” can be found in all the State Constitutions, all the naturalization laws, all the Elector qualifications, all the State and Federal election requirements, and in more case law than can be easily counted here.
+
+Page 34 of 95
+
+__“State” __In the United States of America, (Found 50 times in the original US Constitution) a Union of the European People as Federalists, Princes, Freeholders, Domiciled on Their Demesne Manor (Crown Land) as State Citizens, recognizing and enforcing Unalienable Rights and ___disciplined ___in the principal of doing justice to Others. ___Publius___; also see Chisholm v. Georgia referenced in Bouvier’s Law Dictionary (1914) vol 2 p. 3120;
+
+__“Citizen”__; according to the many authorities and their writings, this word is of ancient origin. It has been used throughout mans history to describe a group of single minded individuals who have banned together in a particular geography, being a village, town, city, or larger, and to therein establish a protective shield against intruders. This generally accepted word would also be the prefix to that specific geography like, “citizen of Rome”, &amp;ccccccccccccccc…… But in all the authorities citing this word has never in its entire existence been directly associated with, or used in connection with the word ___“Sovereign”___, until, the Revolution ending on July 4, of 1776. The American People of European descent, by their own Power, acquired the Sovereignty over the American Nation and its States. At that point in time, each of Them became a “Citizen of the State” by Their own Hand. And ever since have been plagued by unscrupulous spiritually dead criminally minded people to destroy our Constitution and our People!!!
+
+This phrase “__Citizen of the State__”, is the foundation upon which this Nation is Secure. It represents the specific, ___Highest Title _of _the _Sovereign__ in this Nation. This phrase, “__Citizen of the State__”, is the fountain from which the __Sovereign “Posterity” flows__. Without this phrase, “__Citizen of the State__”, there is no “__Sovereignty__”; Without this phrase “__Citizen of the State__” there is __No “People, no “Federal State”__,__ No “Unalienable Rights”, __and most certainly no “__Land of the Free__”, or “__Home of the Brave__”; just a bunch of “denizens”, “subjects”, Banc “chattel”, and 14th so-called amendment “__citizens of the UNITED STATES__” screaming for their government created, granted privileged “CIVIL RIGHTS”.
+
+Page 35 of 95
+
+In order to fix, the application, definition, and true meaning of the phrase “citizen of the UNITED STATES”, pay close attention to the following paragraph: “It will be observed, that under this Confederation, each State had the right to decide for itself, and in its own tribunals, whom it would acknowledge as a free inhabitant of another State. The term free inhabitant, in the generality of its terms, would certainly include one of the African race who had been manumitted. But no example, we think, can be found of his admission to all the privileges of ___citizenship in any State of the Union ___after these Articles were formed, and while they continued in force. And, notwithstanding the generality of the words ‘free inhabitants,’ it is very clear that, according to their accepted meaning in that day, they ___did not include ___the African race, whether free or not: for the fifth section of the ninth article [Articles of Confederation] provides that Congress should have the power ‘to agree upon the number of land forces to be raised, and to make requisitions ___from each State ___for its quota in proportion to the number of ___white ___inhabitants in ___such State___, which requisition should be binding.” ___Dred Scott vs. Sanford ___60 U.S. 393,@ p. ___418 ___(1856). In order to see how the African Race was treated by men of Wisdom in the United States of America, look at the founding Constitution, and Article 9, of the Sovereign “___Republic of Liberia___” (January 5, 1839). ___Publius___;
+
+This phrase “Citizen of the State” is directly opposed to the phrase“citizen of the United States; It is a principal or Our Republican form of government that the Phrase “Citizen of the State” should be well understood by the very People who hold the Sovereignty of this Nation and Each State. There are many citations on this phrase, but, it would be well to ponder a point in our history where the phrase “Citizen of the State” was expressly distinguished from the phrase “citizen of the United States”, by Thomas Jefferson in the first two naturalization Acts:
+
+Page 36 of 95
+
+In accordance with the Limited Power vested by the People in the United States of America in Congress Assembled, by and through Article I Section 8, Powers Granted to Congress: Clause 4 states; “To establish an uniform Rule of Naturalization,…..throughout the United States.” Not in the United States;
+
+Which it did by the following wording:
+
+In the United States Congress, “An act to establish an uniform Rule of Naturalization” (March 26, 1790).
+
+“Be it enacted by the Senate and House of Representatives of the United States of America, in Congress assembled, That any Alien being a ___free white person___, who shall have resided within the limits and under the jurisdiction of the United States for the term of two years, may be admitted to become a ___citizen thereof ___on application ___to any common law Court of record in any one of the States ___wherein he shall have resided for the term of one year at least,……..”
+
+If you recite the Constitution from that specific Article, that vested congress with power to create a rule, it wasn’t, nor has Congress ever been vested with the power to naturalize; in fact the Tenth Article of Amendment, by words so simple, the People prohibits congress from doing any act or exercising any power not explicitly and expressly delegated to it by the Constitution as ratified in 1791.
+
+But, following the establishment of the MUNICIPAL CORPORATION OF THE DISTRICT OF COLUMBIA, [hereafter MCDC] on March 3, 1791 [FIRST CONGRESS. SESS II CH 28]; Congress amended the 1st NATURALIZATION LAW by enacting the 2nd NATURALIZATION LAW;
+
+In which Thomas Jefferson states:
+
+United States Congress, “An act to establish an uniform rule of Naturalization; and to repeal the act heretofore passed on that subject” (January 29, 1795).
+
+Page 37 of 95
+
+For carrying into complete effect the power given by the constitution, to establish an uniform rule of naturalization ___throughout the United States___, as apposed to __In the United States __[DC MC] [and “Only in a State Court having ___Common Law ___Jurisdiction”]
+
+“SEC.1. Be it enacted by the Senate and House of Representatives of the United States of America, in Congress assembled, That any alien, ___being a free white person___, may be admitted to become a ___citizen of the United States___, [correct capitalization/ lower case “c”] ___or any of them___, [any one of the States] on the following conditions, and not otherwise: —
+
+First. He shall have declared, on oath or affirmation, before the supreme, superior, district, or circuit court of some one of the states, or of the territories northwest or south of the river Ohio, or a circuit or district court of the United States, three years, at least, before his admission, that itwas bona fide, his intention to become a citizen of the United States,………………….“
+
+?????WHAT UNITED STATES COULD NATURALIZE??????
+
+The Power Delegated to Congress by ___The People, as Citizens of a State to naturalize___, extended ___only ___to, AND ___throughout ___the ___States___, and, only to any authorized “aliens”, having the specific qualification, such as their “Race”; “their “Allegiance”; their Intent of “Domicile”; the specific Court having American Common Law jurisdiction to take their “oath of Allegiance in English”; and the minimum resident time for qualifying. This is an American Common Law Principal and Un/Inalienable to the People and Their Posterity. See exhibits of authority, attached under tabbed heading [Rights of The People]
+
+CONGRESS, in voicing its power to naturalize in one of its Admiralty/Maritime Courts, just violated Article X of Amendment by delegating and assuming to itself, as an Artificial MUNICIPAL CORPORATION, the Prohibited authority and Unauthorized Power to NATURALIZE. And by this prohibited act, Congress also created an ___artificial citizen and subject ___of and under the general jurisdiction of the municipal corporation called the DISTRICT OF COLUMBIA; present day
+
+Page 38 of 95
+
+this MUNICIPAL CORPORATION [MCDC] IS More commonly known, AND&nbsp;, extensively expressed as “THE UNITED STATES”. When congress, by way of the alien private bancing cartel began to test the Sovereignty and Un/Inalienable Rights of the People, it started by re-defining the term __‘UNITED STATES’ __in most of its CODES like; “When used in this TITLE,… the term “UNITED STATE” included all places….. subject to the jurisdiction of the United States…” which shall include “Guam”; “American Samoa”; Puerto Rico”; “the DISTRICT OF COLUMBIA”; “the Virgin Islands”; and even a pile of guano. See 18 U.S.C. Chap. 1, §§ 5 through 31; &amp;, 26 U.S.C. § 7701(a) (9) &amp; (10), to name a few; also see US Supreme Court decision ___Hooven v. Evatt ___324 U.S.652,671/672 (1944); where it states that “The term “United States” may be used in any one of several senses.”……@ p.671; They even use the specific word “State” to identify DCMC, which could not, even, if they wished to do so, become one of the independent Federal States of this Federal Union under Our Federal Trust Constitution;
+
+When is a Federal/National court vested with American Common Law Jurisdiction; This term, Federal Common Law has been extensively explained and defined in great detail by the Supreme Courts, both State and Federal, and only applies to the Supreme Court of the United States of America, and the Circuit Court of the United States of America..under Article III; And, Where the Lawful Title and or Constitutionally Secured Rights are squarely before a Court, in order for it to proceed it must have Common Law, or At Law jurisdiction. No person can vest a court with full jurisdiction where either Personam, Subject Matter, or Geography is lacking; and, The Supreme Court has jurisdiction in Law where a State is a Party, and the Circuit Court has jurisdiction in Law when Citizens of different States are parties; but neither is vested with the Common Law Power to Naturalize an “Alien” to the position of a “Citizen of the State” simply because these Article III Federal Courts are
+
+Page 39 of 95
+
+not creatures of any one of the States. See ___Glidden v. Zdanok ___370 US 530 (1962).
+
+The truth of this matter is simply that upon the migration of such individuals qualified to take up the sovereignty with state citizenship, after establishing a “Domicile” in anyone of the U.S. territories not MCDC, they must first create a Republican form of Constitution with Common Law Meets and Bounds [Latitude and Longitude] for that yet to be establish State. And upon its qualification in accordance with Article IV Sec. 4, as being a “Republican Form of Government”, and their allegiance to the “Citizens in the several States” and Their Constitution, all the People so qualified by the provisions of the 1st Naturalization Act, including any pre-qualified Citizen of any one of the already established States of the American Union became, at that moment, “Citizens of the new State” so established with full Sovereignty, Prerogatives, and Unalienable Rights.
+
+Next we come to a word that the Founders shunned because of its relationship to that dreaded monarch that the Revolution was fought for permanent separation. But whether they, the Founding Fathers, like it or not, the Posterity are in fact of Law and Principal, “Princes” by the strict meaning and construction of this League of Federal States United as a Union under God.
+
+A ___“League”___, An alliance or confederacy between ___princes or states ___for their mutual aid and defense; or, politically correct would be cited as, “The United Princes of Their American States”;
+
+__“Prince” _In the United States of America___, is, Synonymous with “The Son of God”; “The People” (60 US 393,419); “Their Posterity”- “Descendants; children, children’s children, &amp;c. indefinitely; the race that proceeds from a progenitor. (NW28); A “Citizen of one of the Several States of the American Union”; ___Dred Scott vs. Sanford ___60 U.S. 393, 419
+
+Page 40 of 95
+
+(1856); A “Freeholder” in His ___“Demain Manor”___; An absolute estate in perpetuity, and the largest possible estate a Man can have, being in fact, ___Allodial ___in its Nature; and as equal to the Crown Land, called the “Demesne Manor. NW28; A “Juryman” must be a “Freeholder” NW28; an “Elector“ qualified by the Common Law of these United States of America; a “Militia Man” also qualified by the Common Law of these United States of America, and Citizen of the State, Domiciled in the County; and any other individual who might have allegiance to that particular State; and last but not least, all the Constitutionally qualified State and Federal Legislative, Executive and Judicial Trustees Elected by the constitutionally qualified Elector Citizens of a State, under the Secured Established Principles of the Founding Fathers and God; “___Where Rights Secured by the Constitution are involved, there can be no rule making or legislation which would abrogate Them.___” See ___Miranda vs. Arizona ___384 U.S. 436,491 (1966); and People v. De La Guerra 40 Cal 311,341–344 (1870); This Prohibition also includes any so-called Amendment to the Constitution, 11 on.
+
+Next comes the word “___Federal___” that was and is the defining Principal used to Establish the Common Law identified as a world Unit created by the Founding Fathers, defined by NW28, as follows:
+
+“FED’ERAL”, a. [from L. _f dus_, a league, allied perhaps to Eng. _wed_, Sax.&nbsp;…..
+
+1.   Pertaining to a league or contract; derived from an agreement or covenant between parties, particularly between nations.
+2.   2. Consisting in a compact between parties, particularly and chiefly between states or nations; founded on alliance by contract or mutual agreement; as a federal government, such as that of the United States.
+
+3. Friendly to the constitution of the United States. [See the Noun]}
+
+FED’ERAL, n. An appellation in America, given to the friends of the constitution of FED’ERALIST, the United States, at its formation
+
+Page 41 of 95
+
+and adoption, and the political party which favored the administration of President Washington.” NW28
+
+“__Federalist__” was not a political party, but a “Principal” of Liberty and Sovereignty: An appellation in America, given to the friends of the Constitution of the United States at its formation and adoption, which was __not __a “DEMOCRACY” or a “REPUBLIC”, but in fact and Principal a “Republican Form” of Government. Article IV§4 US Constitution 1788.
+
+A “Democracy”, vests the right of suffrage to all classes; such was Athens, which did not work, ever; DEMOCRACY was held synonymous with COMMUNISM in the WWII training manual; and enemy of this Union; A “Republic”, such as “ROME” was a system where the peoplehad no rights, but were privileged under the Pope and the consorting Emperors; Neither of these two ALIEN SYSTEMS were ever considered by the Founding Fathers in the establishment of our Federation, but were in fact completely and totally denounced as being neither a pure Republic or a Democracy, but a “Republican Form of government”. See Federalist Papers&nbsp;….Madison №10&amp;48 p. 309; paragraph 6.
+
+If the preceding definitions of facts are Lawful, and of sound Principal and the Intent of Our Founders, it then follows that in order for any qualified agent, State or Federal, City or County, appointed or otherwise, who takes, or has taken an Oath to support and defend the Constitution against all enemies foreign and domestic, and that agent becomes or aids a member of a non constitutional faction, then it follows, that said agent, by becoming a “Trustee” of the ___People___, who were themselves, by the principals of the Constitution all “Federalists”, had to also be “Federalists” themselves until that alien faction could eliminate or annihilate the People, “Citizens of the State”, and this Federal Union. By becoming a “Democrat” or “Republican”, or any faction not “Federalist”,
+
+Page 42 of 95
+
+and being on the alien Banc Payroll, constitutes an act in direct violation of that Oath, and “Treasonous” as to the People, Their Posterity and Their Sovereignty!!!!!! ___Publius___
+
+In short, these factions by way of CODES, AMENDMENTS and BANCING, and massive FRAUD and the extermination of the European descendants of the Founding Fathers; the transformation of the People as “Citizen of a State” of these United States of America, into subject chattel citizens of the UNITED STATES, A MUNICIPAL CORPORATION OF THE DISTRICT OF COLUMBIA; Confounded and seized the Allodial titles to Their Demain Manors converting them into “residential”, commercial, agricultural, taxable, alien PUBLIC PROPERTY; And, by the allowance of an alien constitutionally prohibited faction, have converted their Substance and Coin and Labour into ___non redeemable___, LEGAL TENDER BANC PAPER.
+
+This alien faction (BANCERS AND THEIR OVERLORDS) created all the “CIVIL RIGHT’, “CIVIL CODES”, “CIVIL LIBERTIES”, AND even A “CIVIL/SUBJECT citizen of the MCDC UNITED STATES”; and under the guise of equality, failed to mention or use the words Sovereign, Unalienable, or Prerogatives, or properly Capitalize “Citizen of a State”, in any phrase, executive, legislative, or judicial ruling, to identify the African Race; but in fact, not only identified them as SUBJECT TO MCDC, but created a special rule applicable only to them for any of their government created and granted ‘CIVIL RIGHT VIOLATIONS. See 42 U.S.C. § 1983 and ___Wadleigh v. Newhall___. (1905 CC Cal) 136 F 941. Sounds and looks like “Genocide” and “Treason” to Me. ___Publius___
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Chapter 3………………. Their Sovereignty
+
+Page 43 of 95
+
+The Sovereignty of the White People
+
+___“In the United States of America”___, from the Revolution of (1776), the following words and phrases, although taken from other language in other cultures, specifically and strictly “Defined”, apply to and are applicable [O]nly, to the highest ___Title ___and Sovereignty of Man in relation to his fellow Man, and so far, [O]nly in this American Union. ___Publius___
+
+By the Power of God, Man is vested with all the Power of Sovereignty that he could, and does exercise in His Person and Privacy, or, He can exercise it to violate the sovereignty of any or all other creatures of God. But it is the omnipresence of God in Man that create the effect of these caused violations called “consequences” that Man will learn in order to attain the true nature of Heaven on Earth.
+
+The Sovereignty and Prerogatives that Evolved onto the White People as ___Citizens of a State ___at the Revolution (1776), also brought with it the Principal use of ___“Proper Nouns” ___and Their common usage which previously applied Only to the ___Crown Royals ___of ___Europe___, but now, with the separation of One People from the tyrants of the World, specifically applies to ___“The White People___”, as Descendants of Europeans born in America. The following words identified as “Proper Nouns”, found in the Original Script__, __and the Literal Print of the Constitution of the United States of America (1788), are some of these Properly Capitalized Words; examples; ___“People”, “Order”, “Justice”, “Union”, “Tranquility”, “Welfare”, “Blessings”, “Liberty”, “Posterity”; “Powers”, “Members”, “Year”, “States”, “Electors”, “Qualifications”, “Branch”, “Representative”, “Citizen”, “Inhabitant”, “Vessels”, “Money”, “Coin”, “Post Offices”___,.&amp;cccc; all of these Words, and others, which have Special/Proper/Specific Meaning, Applicable only to the White Sovereign People with newly vested Royal Prerogatives and Unalienable Rights with
+
+Page 44 of 95
+
+Their newly vested Allodial/Demain Manor/Castle and Land Titles. The subjects of England have no sovereignty, and still bow down to their Crown and Pope, but the ___“Citizen of an American State___”, unlike the “subject of the crown”, has access through the Sovereign Door at the Vatican.
+
+__“Sovereign”__. A chief Ruler with Supreme Power; One possessing Sovereignty. (q.v.) It is also applied to a King or other Magistrate with limited Powers. ___In The United States ___the sovereignty resides in the Body of the ___People___. Vide Rutherf. Inst. 282. The Union and exercise of all human power possessed in a State; it is a combination of all Power; it is the Power to do Everything in a State without accountability; to make laws, to Execute and to Apply them: to impose and collect taxes, and, levy, contributions; to Make war or Peace; to form Treaties of alliance or of commerce with foreign Nations, and the like. Story on the Const. Sec. 207.
+
+But this definition “is” ___flawed ___because in the ___United States of America___, the “___State___” is an ARTIFICIAL PERSON, in the nature of a MUNICIPAL CORPORATION, that was created By AND For the White Sovereign People; “It”, by and through its “Trustee/Agents, acts only in accordance with That Law of the Constitution that was created explicitly by the White ___People ___in Their Sovereign Political Capacity. Its representatives, although individual Sovereign Citizens of a State on Their Private Side, can act only in accordance with the Constitution specifically on Their Trustee side. ‘The Trustee’, as they are now entitled, have no personal sovereignty over the People, only official “Duty”; this “Duty”, and the jurisdiction it commands, comes only within the limited and specific Article, Section and or clause of the Constitution that created their trustee position and its specific “Duty”. Their artificial SOVEREIGNTY is only sovereign when dealing with the express powers vested in it while dealing with other SOVEREIGNTIES; But, each of them, even though expressly limited to a specific rule, could and have gone far beyond that delegation and have taken part in the elimination of Our American Common Law, and replaced it with A CODE SYSTEM, of which origin is traced directly to an EMPEROR of a foreign jurisdiction.
+
+Page 45 of 95
+
+It is a matter of strict Principal, and as a direct result of the White People using the “Righteous Law” as a Foundation for Our Foundation, that We are ___unique ___to all the other Sovereignties of the World. In this uniqueness, We have decided to exercise our Sovereignty to follow the Righteous Law, and to use its Principles for the creation of Our Constitutions, Original State and Federal. They fall under the strict definition of “The American Common Law”.
+
+In OTHER SYSTEMS of government, that sovereignty resides in the abstract, artificial Body of its Nation and represents the ___general subject people as a whole___. But these Powers are exercised by Delegation or internal appointment, to biased individuals that are financially corrupted in his/her private capacity and in consort with a greater influence that is only interested in the total financial control of all the people and the land.
+
+When strictly analyzed, this word “Sovereignty” when quoted, enforced and identifying the American Government”, is, strictly speaking, a __“limited” Municipal Power__, that is divided into three delegated powers; namely, the Legislative, the Executive, and the Judiciary;
+
+The First, [Legislative] is the LIMITED AUTHORITY and “Duty” of its constitutionally qualified trustees, to exercise a specific, expressed, delegated authority, conditionally limited to make [O]nly those specific “Statutes” that conform to the specific subject of its specific jurisdiction and the ___“American Common Law”___, and __“NOT OTHERWISE”__; These legislative “Trustees”, as they are now entitled, do not have free rein to replace the ___American Common Law Constitutions ___with COMMERCIAL CODES and RULES that may now be cited as authority, and then be used by this new faction of solists to exterminate the “___Private Prerogatives of the Sovereign People___” [Citizen of the State], or, to Convert the ___Sovereign People ___into “subjects” of a foreign POWER; or to convert Their gold and silver Coin into non-redeemable, foreign “PAPER”. The “FACTION” of
+
+Page 46 of 95
+
+which I speak constitutes the Unauthorized, Constitutionally prohibited migration and importation of a group of “ignorant people”, who’s hearts are filled with their uncontrolled lust for power, their greed for money, the exercise of vanity and ego to enforce their superiority over other People, and a complete and total ___disdain ___and disregard for the Rights of others, and their uncontrolled anger and relentless drive to completely exterminatethe ___“American Common Law”___, its “Trust Constitutions”, and the Sovereignty of its Individual White People as a ___“Citizen of one of the States of this American Union”___;
+
+The second, [Executive] is the delegated Power and “Duty” of the Constitutionally qualified “Trustees”, to execute the Statutes and sub codes created by the Legislature that are expressly limited and authorized that conform to the original intent of the ___“American Common Law”___. By their nature, under this system, the following terms, “Law of the Land” and “Lawful”, is the “Constitution” as it was created directly by the People under God and interpreted in strict accordance with Gods direct supervision and guidance;. The second term, “Legal”, follows a CODE and subdivision of the Constitution but is not a Statute that conforms in total to that specific article of the Constitution, or the American Common Law. The American Common Law is the dividing line between the Private Unalienable Prerogatives of the State Citizen and all other commercial powers of government; The Bill of Rights is the best example of the Prohibitions of government, and The 1st Naturalization Law is the best example of the limited power of government to perpetuate the original status of the White People: see Chapter I [The Law]
+
+The third, [Judicial] is that limited Power to apply the Statutes in strict accordance with the Law and Rights of the People, both Public, COMMERCIAL and ___Private___. This Branch is, divided into cases of the American Common Law [Rights and Titles], by Equity [Contract], over Admiralty [On the Water], or Maritime [between land and water]; all of issues in dispute; But all said courts are bound by the specific rules that apply in accordance with the ___American Common Law___, and to Judge the
+
+Page 47 of 95
+
+Disputes which arise among the ___Citizens___, and to Punish American Common Law crimes accordingly. “Strictly speaking, in our Republican Forms of Government, the Absolute Sovereignty of the Nation is in the ___People ___of the Nation as “Citizens of a State”; (q.v.) and the ___residuary sovereignty ___of each State, ___not ___granted to any of its ___public functionaries___, is in ___The People of the State___. See Chisholm (q.v.) 2 Dall. 471; and vide, generally, 2 Dall. 433, 455; 3 Dall. 93; 1 Story, Const. Sec. 208; 1 Toull. n. 20 Merl. Repert. h.t. (Bouvier’s Law Dictionary (1856). But, __“_In the United States of America_”__, the first and primary attribute of “Sovereignty” lies, and is found exclusively within the Body of each Man and Woman as a __“_Citizen of the State_” __while acting in a strictly ___“Private Capacity”___; and PROTECTED by Grand Jury when that sovereignty has been violated. ___Publius___
+
+To recall from Chapter I, [The Law] any and all the CODES and RULES are of a COMMERCIAL NATURE, and follow the strict course from a specific Statute, that must be cited as the authority to enact it, and in order to govern, enforce and judge all those acts effecting the general public by anyone who chooses to contract with it, __“The GENERAL PUBLIC”__, whether it be a ___“Citizen of the State”___, or __citizen/subject __of the __municipal corporation UNITED STATES__, or a citizen or subject of a foreign state, or a “Trustee”, or an alien, or even the UNITED STATES or one of them; whether said contract be verbal, in writing, or by deed. Again, see Hooven v. Evatt in Chapter 2, supra.
+
+In Accordance with Our Federal System, and by the Principles of Its Specific Terms, the State, and the United States are, by Our strict Federal definitions, are “Not Sovereign” over the White People, but nothing more than “Creatures of the People”, and therefore just artificial MUNICIPAL CORPORATIONS, that can act only in an “OFFICIAL CAPACITY, and then Only in accordance with their “Charter” [the Constitution], by their “CORPORATE OFFICERS”, Which, for the Safety and Welfare of the
+
+Page 48 of 95
+
+People, are also qualified From the People; but who swear by Their Allegiance to their CHARTER, to agree to serve The People as Their “TRUSTEES”. And if THEY should fail to Execute their sworn Duties in strict accordance with the Law and Its Intent, or to propose the extermination of Our Federal System, to be subjected to the Charge of “Treason”…………
+
+So, It follows that: The White People = A Citizen of His State, who in Their collective capacity are = The Creators of the Law = That is The Constitution = Which is An Express Trust of the White People = Represented by the White Trustees of the White People = A State and the States United in Congress = A Union of artificial MUNICIPAL CORPORATIONS = The State and Federal CORPORATE OFFICERS, Legislative, Executive, and Judicial = A system unique and unequaled to any of the systems of this World.
+
+It therefore naturally follows that:
+
+Once the qualified Citizen of a State is chosen and Elected by the Qualified Electors of His State, to take an active role in the Government as a “TRUSTEE” of the People in Whole, He no longer executes any power of Sovereignty but only “OFFICIAL’, and Only in strict accordance with The delegated Mandates and Prohibitions under the Constitution from which He voices His Oath of Allegiance on the Christian Bible. His Personal Private Sovereignty and Ultimate Allegiance to God still remain; but, these special attributes do not come within the scope or execution of the TRUSTEE Duties of His TRUSTEE position in the GOVERNMENT. Only by the express delegated authority of the Constitution does He, as TRUSTEE, act, and not otherwise. If he fails to legislate, execute, or judge the Law as Mandated, he does not belong to that Political Representative Body entrusted to Him by The White People with Their power and authority to protect the Secured, Unalienable ___Rights and Sovereignty of “The White People. Publius___
+
+Page 49 of 95
+
+The following citations have not been overturned:
+
+In ___M’Culloch v. Maryland___, 4 Wheat. 316, 405, 4 L. ed. 579, 601, Chief Justice Marshall said:
+
+‘The government of the Union, then (whatever may be the influence of this fact on the case), is, emphatically and truly, a Government of the People. In form and in Substance it Emanates from Them. Its Powers are granted by Them, and are to be exercised directly on Them, and for Their Benefit.’
+
+See also ___Martin v. Hunter___, 1 Wheat, 304, 324, 4 L. ed. 97, 102, opinion by Mr. Justice Story.
+
+In ___Scott v. Sandford___, 19 How. 393, 441, 15 L. ed. 691, 715, Chief Justice Taney observed:
+
+‘The new government was not a mere change in a dynasty, or in a form of government, leaving the nation or sovereignty the same, and clothed with all the rights, and bound by all the obligations, of the preceding one. But, when the present United States came into existence under the new government, it was a new political body, a new nation, then for the first time taking its place in the family of nations.’
+
+And in Miller on the Constitution of the United States, p. 83, referring to the adoption of the Constitution, that learned jurist said:
+
+__‘It was then that a nation was born.’ __previous cites from Kansas vs. State of Colorado 206 U.S. 46, 81(1907).
+
+The primary attribute of “Sovereignty” is the “Land”.
+
+The ___People ___conquered this Land, — not the government;
+
+The ___People ___Hold this Land, — not the government;
+
+Page 50 of 95
+
+The ___People ___Hold the Ultimate Title to this Land, — not the government;
+
+The ___Peoples ___Domicile is in Law and by Conquest, a ___Demesne Manor ___in this State, — not a RESIDENCE, or Land Patent of the government;
+
+The ___People ___Till This Soil, — not the government;
+
+The ___People ___Grow Their Food, — not the government;
+
+The ___People ___Produce Their Posterity, — not the government;
+
+The ___People ___Qualify Their ___Peers___, — not the government;
+
+God Created the ___People___, — not the government;
+
+The ___People ___Created the GOVERNMENT, — not the government;
+
+The ___People ___Make the ___Law___, — not the government;
+
+The ___People ___are Exempt from all regulation in Their ___Privacy___, — not the government;
+
+God Created ___Unalienable Rights ___FOR the ___People___, — not the government;
+
+The ___People ___Exercise ___Unalienable Rights___, — not the government;
+
+The ___People___, and only the ___People ___exercise the __DELEGATED Power __of the government as TRUSTEES, who are then still subject to the Will of the ___People___,
+
+The ___People ___as Citizen Trustees make the Rules, — not the government;
+
+The ___People ___as Citizen Trustees Enforce the Rules, — not the government;
+
+Page 51 of 95
+
+The ___People ___as Jurors decide the Law, — not the government;
+
+The People are the Militia, — not the government;
+
+These are just some of the ___Principles ___that Mandate why the White conquering ___People as Citizens of a State ___are the ___Sovereign___, and, — not the government;
+
+So, just what exactly is the “GOVERNMENT”????
+
+Our Republican form of Government, is comprised Of three branches of the People as the “People”, as White Male European Citizens Electors in and of the Several States 21 years+ ‘White Male Trustees 25 years+; And for all the People, as White Europeans Born in One of the several States or Naturalized in one of Their State Common Law Courts, from Birth to Death and Their Posterity!!! All this, not for power, or glory, but For One Purpose, to be a Vehicle of and for God By His Example to show all People and Races the path Home to God.
+
+So just what is Our “Republican Form of Government”?????????????????????
+
+Many authorities, such as the Federalists, and many other different so-call authorities have posed many varied examples of just what a “Republican form of Government” might be; but in all these examples they did not, without exception qualify the “Specific ___race, age, gender or political status___” that Our __“Republican Form of Government” __is composed of.
+
+First and foremost I previously cited the Federalists Papers as the final Authority when interpreting the Constitution; and where the Founding Fathers use Specific well known words and terms familiar to
+
+Page 52 of 95
+
+them and their immediate Posterity. For example, in the Federalist Papers, The word “People” was cited 620 times in that document, followed by Europe, 42 times; “European” 12 times; “Citizen” 27 times; Representative(s) 247 times; “Union” 376 times; “Federal” 325; the term “States” 857 times; “State” 796 times; and the word “White” appears Zero, none, not even 1 single time. According to Our Blood Line, as stated by the Supreme Court of the Unite States of America, all these words were and still are synonymous with the words “White People”, why? Because they were all White Europeans born or naturalized in one of the several States; see Dred Scott v. Sanford previously cited.
+
+And therefore, For clarification of just what the Founding Fathers meant when They identified all the special Parts of this Federal Union The Common Ground for all the previously cited words used by the Founding Fathers is in the one Common Race of the “White People”. This “___White Race” ___of European descent, is the Foundation of Our Federal Union. Examples and use of the word “White” are available in more documents, State and Federal, Supreme Courts, Law Dictionaries and in all the States and Federal statutes from as many sources as you wish to discover prior to the treasonous 15th so-called Amendment, and the so-called reconstruction period following the ‘CIVIL WAR’;
+
+So simply put, Our Republican form of Government is a Government “Of”, “By”, and “For” the “White People”, and when stated “Of”, means: 1st&nbsp;:All White Males 21 and older, English Speaking, Citizen of a State and qualified Elector; such as qualified by Article II §1, Constitution of California (1850)
+
+2nd&nbsp;: By the White People, who are All White Males 25 and older Citizen of a State for Representative; 30 for Senator; 35 and older for President; See Article I and II US Constitution; and,
+
+3rd&nbsp;: For the White People that includes All of Them Male and Female and Their Posterity.
+
+Page 53 of 95
+
+Those of you people who are unwilling, or find yourself not constitutionally or spiritually qualified to take part in Our Sovereignty, are either transient aliens or just uninformed and or ignorant to the American Common Law. It is by these facts of truth that you are subjected to the will and control of our Police Power and its constitutionally authorized general commercial codes. You know your status by the ID you carry and by your belief in the commercial civil system of the government that issued the COMMERCIAL ID’s that you carry and you live by. See Box below.
+
+The concept of a Sovereign People is different from all the other systems of the world, and is certainly extraordinary to most people; But, it is never the less a physical and spiritual truth. The fact remains that too many people, regardless of race, are to steeped in their own ethnic traditions to be willing to break away from such controlled concepts of their individual and mass collective ideas about a people not ruled by a king or democratic type government. Such was the Act of Revolution (1776) by Our White Founding Fathers. God takes no part in the fears of people and therefore never expects to break the image of these peoples insecurity. It is the nature of such a system of parental monarchal control that actually deprives them of their discovery of the source of real security. Despite the fact that their belief in such a controlled system exists for their benefit and security, it still remains undiscovered until they take the fearful step of total responsibility to acquire the spiritual freedom and Unalienable Right to grow according to Gods Law, as apposed to Man’s civil codes. Publius
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Chapter 4……….The People’s Rights
+
+The People’s Rights
+
+Page 54 of 95
+
+Where, on or in this Earth World, can a Hu man go, to exercise the Freedom to follow a Law, that rewards Him for becoming a Conscious Vehicle for God???
+
+And if such a place does exist, does the Law of That Land ___Secure ___His Right to Operate that Vehicle???
+
+And If such a Law does exist, is it defined as “Inalienable” or “Unalienable”???
+
+We need look no further than the perfected examples cited by the English Jurist Blackstone and his compilation of the “Kings Prerogatives” listed in Chapter 7 of his Commentaries written on or about June 23, 1753; some of which in the following list are paraphrased as they would appear if, the Kings prerogatives were cited in Our Bill of Rights, or by the Wisdom of Our early Supreme Courts:
+
+The definition of “Prerogatives of the Crown is _“Inalienable” _[NW28] and then follows with the Word _“Unalienable”_, both of which are derived from many other cultures and languages, But, they include, but are not limited to the following:
+
+1st; His Right to Travel in his Private Carriage without an England taxi registration plate, and or operator’s license&nbsp;, and mandatory auto/carriage/motor vehicle insurance:
+
+2nd; His Right to possess the Lawful Title [Manufactures Certificate of Origin] for all his Private carriages: whether drawn by horse, motor, engine, or other type of propulsion:
+
+3rd; His Right to Contract Privately in any manner He chooses, and to transport his Persons and or Property resulting from said Private Contract upon his Rights of Way while displaying a Crown authorized Exempt Placard/Plate: but being responsible for any damage he might cause to the Pubic or Their constitutionally authorized Property:
+
+Page 55 of 95
+
+4th; His Right to engage in unlimited Private Contracts without a social security or other permissive type number:
+
+5th; His Right to receive or pay gold and silver Coin in payment of any debt or any agreeably completed Contract:
+
+6th; His Right to hold and enjoy, and develop His Demesne/Demain Manor [His Private Real Property] of a reasonable common law size, free of any tax or rent, or code requirements:
+
+7th; His Right to keep and bare arms of any nature [concealed or otherwise]:
+
+8th; His Right to choose and qualify his peers [for any dispute arising between Him and his subjects/resident aliens, or Neighboring Kings]:
+
+9th; His Right to engage The woman of His choosing, under the “Common Law” without permission of the parliament and or their License:
+
+10th&nbsp;; His Right to Qualify and Identify His Posterity [which, is none of Parliaments business].
+
+By The Revolution 1776, this Independent Sovereign Nation was born; and the People surrendered “Nothing”; but, in fact gained all the Prerogatives of the Crown, within this Nation. See ___Chisholm v. Georgia; Lansing v. Smith; Dred Scott v. Sanford___; the Original Constitutions both California State (1849) and The Federal (1788 ) and Its 10 additional Original Articles as the 1st and only Lawful Amendment (1791);
+
+These Prerogatives of The People are, in a single word, “Unalienable”;
+
+“Unalienable” ___In the United States of America___, “The state of a Thing or Right which cannot be sold. Things which are not in COMMERCE, such as a State Citizen’s Private Life, Private Liberty, [Private Real Property to a non qualified State Citizen], and Private Happiness. It also includes a Public road or a Right of Way; [the Kings/State Citizens Highway] the Right to receive certified Article I, Sec
+
+Page 56 of 95
+
+10 Cl. 1 Specie Coin for Our Labour; Natural Organic Food and Water from Mineral rich Soil; a Minimum amount of Demain Allodial Land; a Judicial Writ of Error; and last but not least to be identified in accordance with Our Right of Sovereignty and State Citizenship; all of which are in their Nature “Not subject to a Lien”, or “Alienable”, but in fact of “The American Common Law”, Unalienable as to the Citizen of the State. See “Citizen” defined and distinguished by Congress in the 1st Naturalization Laws March 26, 1790, and the conflicting 2nd Naturalization Laws, January 29, 1795, of which the second followed the establishment of D.C., wherein Congress states; ___“That any alien, being a free white person, may be admitted to become a citizen of the United States, or any of them, on the following conditions, and not otherwise:”___
+
+In the smallness of mans mind everything has a price tag, [even the soil upon which he exists] or value of some form or other; But not Until he is forced to pay for the consequences of his inequities, and discovers that there is no amount of prayer, money, even a pound of flesh or otherwise, that will satisfy this debt; then and only then does He surrender to God the things of his dilemma which include his “ Attachments, Anger, Greed, Lust, Ego and Vanity” in total. Publius
+
+___In the United States of America ___(1776), The “Federalist Founders” used the term “Prerogative” 29 times, and the term “sovereign” 92 in The Federalist Papers. Although these words identified the crown heads of a system The Founders wanted no Part of; But, Their act of Revolt, and the Position created by That Revolt impregnated the very Principles of Sovereignty and its Prerogatives in Them and Their Posterity, whether They wanted Them or not. The Following is a List of the Sovereign Prerogative Rights and Powers vested in the Citizen of the State at the Revolution (1776), and Confirmed by Our highest Authorities:
+
+Page 57 of 95
+
+___1.&nbsp;___, a “___Private ___White Citizen of the State” of His/Her Domicile can never be a “resident”, “tenant”, or “person”; (See Blackstone ch. 7 § 336) and United Mine Workers __330 U.S. 258 footnote 23/24 (1947));__
+
+___2.___, The “White Common Law Citizen”, qualified Elector, by His Constitutionally elected Common Law Qualified House and Senate have determined the nature and substance of His Coin; See US Const. Article I, § 10 Cl. 1, ___Unaltered___;
+
+___3.___, The “Private White Citizen of the State” has the absolute Prerogative Right to the Religious Freedoms of his Choice, See Article 1 of Amendment to the U.S. Const (1791);
+
+___4.___, The “Private White Citizen of the State”, in his Private capacity, Travels upon His common Highways as a matter of “Unalienable Right”, See Preamble U.S. Const.; ___En re: Stork ___167 Cal. 294 (1914); (Cal. Stats. 1925, ch 412, p. 833. Approved by the Governor May 23, 1925.)
+
+___5.___, The “Private White Citizen of the State”, through His Constitutionally qualified Representatives regulates all COMMERCIAL ACTIVITY affecting the general Public at Large but that COMMERCIAL delegated POWER DOES NOT regulate the White Citizen of the State Who is “Exempt” while in the exercise of His Private Rights of Life, Private Liberty, Owning Private Property or the pursuit of Private Happiness; See Hale v. Henkel 201 U.S. 43,74 (1905);
+
+___6.___, The “White Citizen of the State”, at the Revolution, “Surrenders Nothing”, and owes Allegiance to ___no man___, only God; See The Federalists №84;
+
+___7.___, The “White Citizen of the State” is the fountain of Honor, of Office, and of Privilege who, as the creator of the Constitution, erected and OR disposed of all Federal political offices; See the Preamble and Article IV Section 4, US Constitution;
+
+___8.___, The “White Citizen of the State” is the fountain of “Law”, and in all cases effecting the Life, Liberty and Property of his Peers, He has the final Word as to the Law, and the Facts; See Article VII of Amendment (1791) and Taylor v. Virginia 100 U.S. 664 (1880);
+
+Page 58 of 95
+
+___9.&nbsp;___, All Criminal proceedings are commenced “In The Name of the White People”, by Grand Jury Indictment of His Peers, “White Common Law Citizens of the State”, comprised of “White People Freeholders”, which evidence must be supported by affidavits of two or more witnesses or irrefutable fact, and prosecuted by the Qualified Elected State Attorney General, as the Highest “Common Law Officer” in the State; by a Judge Elected by the Qualified Common Law White Citizen of the State;
+
+___10.___, The Greatest wrong a Citizen of this “Federal” State can do to Him/Herself and the “Posterity”, is to Allow the Unalienable, God given “Private Prerogatives” Secured by the Founding Fathers, For these United State of America, to be converted into CORPORATE PRIVILEGES, and by the “ARTIFICIAL STATUS” listed in the Red Box, are now subject to and controlled by a CORPORATE LEGISLATIVE, EXECUTIVE AND JUDICIAL POWER, who all receive their compensation from the alien FEDERAL RESERVE. ___Publius___
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Chapter 5………..The People’s Land
+
+The Peoples Land
+
+“Land; The United States is denominated the ___land of freedom___.” Noah Webster (1828)
+
+The primary attribute of “Freedom” is “Sovereignty” which leads Us to the foundation of the Sovereignty of the People of the several States of this American Federal Republican system, which is, “The Land”. As previously cited from the Federalists Papers, the term “People”, is synonymous with European and appears 620 times and 54times respectively. So just who and what were the Founding Fathers??? the answer is unquestionably answered as, __“_People_” __from ___“Europe_” __the ___“Land” of the “White Face”___!!
+
+Page 59 of 95
+
+If this sounds like a ___bigoted or prejudiced racial statement___, then the person reading this Dictionary is either ignorant of the Law, or has no concept of one People exercising the God given Sovereignty that All People have access to, but that only the White European People in the several States have fought, bled, and died, so that their Posterity might take part in this unique example and American experiment. The average person, regardless of race, has a natural fear of self responsibility. He/She, is secure in the control of a few. This is the Nature of Man on Earth. But this Federal System was birthed for those of Us who are Responsible. Our only question might be’, is just how far backwards do the responsible People among Us have to be driven before They again Stand up and Say “Enough is Enough”??? ___Publius___
+
+___In Repetition:___
+
+The White European People conquered this Land, — not their government;
+
+The White European People Hold this Land, — not their government;
+
+The White European People hold the Ultimate Title to this Land, — not their government;
+
+The White European Peoples Domicile is, in Law, a Demesne Manor in this State, not a Patent or RESIDENCE, and is subject only to God, — not their government;
+
+The White European People till This Soil, — not their government;
+
+The White European People Grow their Food in the soil of this Land, — not their government;
+
+The White European People entrusted their Unalienable Rights to the Land, in a government elected from The White European People&nbsp;; by The White European People; and, For The White European People, — not of, by, or for the government;
+
+Page 60 of 95
+
+This started with a “Revolution” (1776) and has culminated through many carefully calculated wars, both foreign and domestic; These wars, unlike the Revolution of 1776, were not of, by or for the People, but were carefully calculated but necessary. This wanton disregard for human life is almost unprecedented through Out History. This point is not easily arguable, but the resolution of the true cause of these wars will bear the fruit in the form of an effect called Knowledge and Wisdom. From the Effect will come the renewed knowledge of just exactly what is meant by an “Act of Treason” against the Sovereignty of the White People. It need not be redefined, but simply understood.
+
+Once you turn over Your Law of the Land, the key to Your vault, the Title to Your Land, and the souls of your Posterity to a bunch of THIEVING BANCERS and their MURDERING DIRECTORATES, you should not be at all surprised that you have now, as stated by the Federalists, woken up a slave in the land that your Founding Fathers died to Secure for You!
+
+If those People among Us who cannot trace their race to the Founding Fathers still contend that they have been vested with all the “Unalienable Rights” secured to the White People in these several States, now is the time to quit crying for your CIVIL RIGHTS, and Demand Sovereign Prerogatives. There is no other way. The first principal for the defeat of a Nation is to eliminate the Sovereign People by combining them with a subject class, separating them from their Land; poison their soil, their water, their air; Steel their Coin and debase their posterity; in other words, infiltrate, divide and conquer.
+
+In order to grasp a better understanding of the Principal of Sovereignty when taking care of the Soil, we will look at an overreaching Act of congress called “PRE-EMPTION”; and for clarification, is another word having its roots in a monarchal system such as Europe, from whence
+
+Page 61 of 95
+
+it comes. More important is the fact that this Act falls in line with all the other terms and words that came into being just following the CIVIL WAR. The only reason that I use this act is that it uses certain word and terms expounding the American Common Law Principles applicable to theproper care taking by a White European Citizen of a State, of the Soil of His Demesne/Demain Manor/Castle; BUT this ACT IS IN NO WAY BINDING UPON THE “Common Law Claim” CLAIM OF A “White Citizen of a State”, especially where said Land is now solely within one of the already establish Federal States, and, has already been settled, occupied, surveyed and speculated. Pre-Emption = Claim before Pay.
+
+Revised Statutes, FORTY-THIRD CONGRESS 1873-‘74; TITLE XXXII THE PUBLIC LANDS; CHAPTER FOUR SEC. 2257 through SEC. 2288.
+
+This Act Presumes to place most of the Land under the general jurisdiction of MCDC, [MUNICIPAL CORPORATION DISTRICT OF COLUMBIA] and under the control of the foreign BANCING CARTEL who instructs the President [§2207]. It also only applies to the Specific “citizen of the UNITED STATES”, MCDC[§2259]. It further presumes to limit the amount of land to any claim of a “citizen of the United States”, to that of 1/4 Section, or 160 Acres [§2259]. But a Citizen of a State could acquire what ever amount necessary for His one and only Demesne Manor, His “Domicile”, but only One and in Only One State, or a territory[§2262]. The Price for this minimum amount is in certified Specie Coin of the Realm, and still is only enough to cover the cost of the Survey [§2237et seq.]. He, the Claimant, must also Declare that He will not speculate the Land. Wow, the last principal is out The Window!! [figuratively speaking]
+
+So, here is the chain of events leading up to and including all the Land in these Several States, from the Revolution, to the present residential property tax assessor and non-redeemable banc inflated paper.
+
+Page 62 of 95
+
+First Principal Established by the Revolution 1776:
+
+“Allodial Title to all Land is in the People “White European Citizens in the several States”.”
+
+__“Title” __Exclusive Possession; (Noah 1828) Parallel to Right, Unalienable and A Prerogative: ___In the United States of America___, the highest Human ___Title ___is a “___Citizen of the State___” 2 Dall @455; followed by the Union of ___Citizens ___which is the ___State___; followed by the highest Title to Land within the State which is “Allodial”, and then Demain, or Demesne Manor, the Personal, Private Abode, Domicile and Castle of the Sovereign, all of which are ‘Secured’ by God and the “Constitution of the United States of America (1788)”; as confirmed by the Revolution of 1776 and Miranda vs. Arizona 384 U.S. @ 491 (1965).
+
+__“Allodial” __Pertaining to allodium; freehold; free of rent or service; held independent of a lord paramount; opposed to feudal. Blackstone. Freehold Estate; land which is the absolute property of the owner; real estate held in absolute independence, without being subject to any rent, service, or acknowledgment to a superior. ___In the United States of America___, Most Lands are Allodial. Noah (1828). ___In the United States of America ___the Right to hold this Allodial Title to the Private Land in one of the Several Federal States of the American Union is the Prerogative of the ___White People of the United States of America ___as a qualified “___Citizen of the State of His or Her Domicile___”, which then is equal to the “Crown Land” in Europe defined as Demesne or Demain by Noah (1828). ___Publius___
+
+Second Principal Established by the Revolution 1776:
+
+On the other hand, there was a “Land Patent”: THIS _feudal _PHRASE came here before the Revolution, but was a familiar Term with the Founders. But, like the term ”tenants in fee simple” WAS AND IS a
+
+Page 63 of 95
+
+creature of England belonging to the _act of the Crown of Europe and its Monarchal system. The term “Land Patent” was exclusively _used by the Crown to identify the highest land title issued under His authority to HIS most loyal _subjects_. In the United States of America, the executive authority of both State and Federal Government, have no such preeminence, or Sovereign Prerogative, but by custom and feudal usage, have ___presumed ___to be the fountain from which this highest _feudal _title to land is issued. They call this title a “Land Patent”. A Land Patent is, like a ___subject___, and a creature of the feudal system such as England, where the king is the possessor of all the Land in Allodium, and has the prerogative to issue this Land Patent to a subject of his own choosing, or to void said Patent at his own prerogative. Therefore a _Land Patent _in The United States is nothing more than a sub title that the government has issued under many different treaties or claims to others having no sovereign Prerogatives to the Allodial Title. Said Patent is subject to seizure through a process known as “Eminent Domain”, but only by the final act of 12, White European Citizen Freeholders Domiciled in Their Demain Manor in the State and County of the Patent being seized.
+
+Herein lies the greatest dilemma of Our Time!!! Just what should The “Allodial Title” to Land in one of the Several States claimed adversarialy or by purchase by a White Sovereign State Citizen look Like, and what “Words” of Law should be used to describe It?????
+
+It has already been discovered, that as a matter of Natural Law, the “European People” of these United States of America, with the victory Revolution of 1776, also took on all the Sovereignty and Prerogatives of the Crowns of Europe within Their respective State. ___Lansing vs. Smith; Scott v. Sanford; Chisholm v. Georgia___ supra;
+
+The only problem is that they did not assume the Properly worded Title Documents equal to Their newly acquired Sovereign Status. This leads Us to discover the actual Word or combination of Words that is
+
+Page 64 of 95
+
+correct in Law, and Proper to identify the “Title of Land” Actually held by the Crown/King/Princes of Europe as His Private “Domicile”, that does now Lawfully apply to the People?? This leads Us to the term: ___“Crown Land”___.
+
+The Third Principal established by the Revolution 1776:
+
+__“Crown Land” __The demesne lands of the Crown according to Noah 1828; Eng. law. The name given to that portion of the lands of a manor and or Mansion, which the lord retained in his own hands for the use of himself and family. These lands were called terra dominical or demesne lands, because they were occupied by the lord, or dominus manerii, and his servants, &amp;c. 2 Bl.
+
+Com. 90. Vide Ancient Demesne; Demesne as of fee; and Soil assault demesne. Bouvier’s 1856; 1914;
+
+By the Law of Nature, and the Common Law of America, a ___Citizen of the State___, in order to support Himself and His Family of four, more or less, according to the Laws and Principals of Sovereignty, must have access to a piece of Land large enough to enforce His Sovereignty and supply the following elements:
+
+Have a Well, or ___free ___access to Crown Water;
+
+Plant a Garden with Fruit Trees; properly fertilized and maintained according to the Common Law; being disciplined to turn the crop under at least every 7 years;
+
+Have Chickens, and or such other domesticated Animals as He sees fit; And the Land to grow Their Food; also including the Right to fish and take such game as necessary for His ___subsistence ___and that of His Family;
+
+Page 65 of 95
+
+This Land must also be large enough for a leach field or septictank that does not Trespass into a Neighbors Land, or into His own Garden.
+
+A Section, being 1 mile square, was not uncommon, and is in fact a minimum size identified in our Judicial history describing this very Principal.
+
+However you view this chapter on Land, it will be seen as common to the Planet.
+
+The following word has no place in the Demain Title to the Private Property of a White Citizen of the State;
+
+__“Fee” __in Noah(1828) equal to, meaning a “Loan” of Land, an estate in trust, granted by a prince or lord, to be held by the grantee on condition of personal service, or other condition…A fee then is any land or tenement held of a superior on certain conditions. It is synonymous with _fief _and _feud&nbsp;_. All the land in England, accept the Crown Land, is of this kind.”
+
+Noah did not understand the true nature of a Sovereign People or their Unalienable Rights. All the examples of title to land in all the English Dictionaries refer to definitions of a Feudal relationship between the subjects, as tenants in fee simple, or other fee, and the Crown. All land in Europe is Allodial as applied to the Crown, but feudal as applied to His subjects. A Land Patent owes its existence to this feudal relationship but still is not a Title word to be used to describe the Crown Land in Europe or, the White European Citizen of the State at the Revolution (1776), the Peoples Land in the United States of America.
+
+The Fourth Principal of the Revolution 1776:
+
+__“State”__: The unanimous consent of the “People” of the colonies, then, [60 U.S. 393, 502] to the power of their sovereign, ‘to dispose of
+
+Page 66 of 95
+
+and make all needful rules and regulations respecting the territory’ of the Crown, in 1774, was deemed by them as entirely consistent with opposition, remonstrance, the renunciation of allegiance, and proclamation of civil war, in preference to submission to his claim of supreme power in the territories. I pass now to the evidence afforded during the Revolution and Confederation. The American Revolution was ___not ___a social revolution. It did not alter the domestic condition or capacity of persons within the colonies, nor was it designed to disturb the domestic relations existing among them. It was a political revolution, by which thirteen dependent colonies became thirteen independent States. ‘The Declaration of Independence was not,’ says Justice Chase, ‘a declaration that the United Colonies jointly, in a collective capacity, were independent States, &amp;c., &amp; c., &amp;c., but that each of them was a sovereign and independent State; that is, that each of them had a right to govern itself by its own authority and its own laws, without any control from any other power on earth.’ (3 Dall., 199; 4 Cr., 212.) Scott supra @ p.502
+
+The Fifth Principal of the Revolution 1776:
+
+So, From Sovereign in 1776 to SUBJECT in 1866; White European Citizen [first Letter Capitalized] of a Federal, Republican State, United for Their Benefit, Safety, Security, and the Perpetual Existence and Enforcement of Their Sovereignty, and for the Sovereignty of Their Posterity;
+
+Enter the 2nd naturalization law and the term phrase, a “citizen of the UNITED STATES; of Which Our Highest Court of California has declared that; “there is no such thing as “citizen of the UNITED STATES”. See ___Ex parte Frank Knowles ___5 Cal. 300 (1855)&nbsp;;
+
+Enter the 11th so-called amendment exterminating the Right of a White Sovereign Citizen of a State, to sue a State of White Sovereigns, who, by the fraudulent act of Their executive trustee, violated the most
+
+Page 67 of 95
+
+fundamental American Common Law principal and, the exclusive remedy of and “Action of Assumpsit”, on the obligation and duty of a Federal State, after it consummated a Lawful Contract that helped win the Revolution; See Chisholm supra; and Madison Federalists #43 Sec 8 on “Amendment/Error”;
+
+Enter the “BANK”; Let’s see if WE, THE BANCER MONEY CHANGERS, can con these “White European Sovereigns” into giving US all Their gold and silver in exchange for short term paper redeemable in nothing; And, Their land for worthless “PROMISSORY NOTES” and DEEDS OF TRUST; And, Their Sovereign State Citizenship for a “BANC CARD” and SOCIAL SECURITY ACCOUNT; And, Their Posterity in exchange for a “BIRTH CERTIFICATE” on “BANC NOTE BOND PAPER”, All, without a single shot being fired!!! It’s not rocket science, but it is a consequence of, FRAUDULENT, TREASONABLE ACTS against The White People.
+
+Enter the “CIVIL WAR”; where more White Sovereign State Citizens were exterminated by their own fellow Sovereign Citizens, than any other war until Vietnam; and in the process, by all the legislation of a corrupt alien BANC system, shot Lincoln, and completely converted all the White Sovereign State Citizens into the very status of a “subject freedman” that the CIVIL RIGHTS ACTS supposedly released from The bondage of their White Masters by the “FREEDMANS BUREAU BILL”; also including the unconstitutional 13th&nbsp;, 14th&nbsp;, 15th and ALL THE FOLLOWING SO-CALLED fraudulent AMENDMENT’s TO THE “White European State Citizens Federal Constitution (1788/91)”;
+
+Enter the Reconstruction Period 1866 to present; With the elimination of all reference to “Citizen of the State”, by and through the intent of that FACTION OF BANC CRIMINALS, they enacted a flood of CODES, CIVIL, CRIMINAL, COMMERCIAL &amp;cccccccccccc.. In place of Our American Common Law, vesting their BAR ASSOCIATION with
+
+Page 68 of 95
+
+exclusive right and knobble titles (esquire) and CIVIL CODE POWER to finish the job;
+
+Enter all the words and phrases now unquestionably accepted by the White Posterity, that will, if unchallenged, end the reign of a limited government controlled only by the Sovereignty, Knowledge and Wisdom of the Founding Fathers. Publius
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+Chapter 6………. Their GOVERNMENT and its PROPERTY
+
+Their GOVERNMENT and it’s PROPERTY
+
+“__PEOPLE/PERSON__”, [CORPORATION] in all UPPER CASE, is neither a “noun” or a “Proper Noun”. IT designates an ARTIFICIAL ENTITY of non organic substance. Its common use is found in ITS CHARTER with the general identification of “A CORPORATION”. CORPORATIONS are “CREATURES OF THE STATE”. ITS OFFICERS act according to its CHARTER and not otherwise. See ___Hale vs. Henkel ___201 U.S. 43,74 (1906);
+
+It follows that the 14th SO-CALLED AMENDMENT TO THE US CONSTITUTION consummated the earlier established creation of an artificial citizen, commonly known as a “citizen of the UNITED STATES”, which by a decision from the California State Supreme Court entitled ___Ex Parte Frank Knowles ___5 Cal 300 (1855) previously cited, the Court, after examining the true nature of Our Republic, and the actual wording used by the Founders in the 1st Naturalization Law, stated that: ___“There is no such thing as a citizen of the United States”.___
+
+For further personal examples inspect all the government issued DOCUMENTS with Your all UPPER CASE NAME on it. They are,
+
+Page 69 of 95
+
+without exception, ALL in ALL UPPER CASE LETTERS. Don’t forget Your:
+
+RESIDENTIAL PROPERTY TAX assessment;
+
+NATURALIZATION CERTIFICATE
+
+WATER AND POWER BILL;
+
+BANC/K RECORDS;
+
+BIRTH CERTIFICATE on BANK NOTE BOND PAPER
+
+SOCIAL SECURITY CARD;
+
+DRIVERS LICENSE;
+
+INSURANCE CARD;
+
+INS GREEN CARD,
+
+VOTER REGISTRATION;
+
+DEATH CERTIFICATE…………………………….
+
+and see the Red box below; all of which in fact identifies You, whether White, Black, Yellow or Red, ___Law People ___“___Citizen of the State___” or otherwise, as NOTHING MORE than a “ LEGAL COMMERCIAL ARTIFICIAL FICTITIOUS PERSON” created and MORTGAGED by Our State and Federal Trustees, to A FOREIGN PRIVATE BANC. Still another act of Treason by THE Trustees.
+
+This FOREIGN BANK, by way of carefully infiltrated directorates, and the general ongoing Ignorance of the “White People”, continue to allow these treasonous acts that also converted each of the Federal, Republican States, into “TAXING DISTRICTS”, BY another fraudulent EXECUITIVE ORDER CALLED&nbsp;, “THE ZIP CODE”, and by the unconscious permission of the IGNORANT ___“White Posterity of the People” of “The United States of America”___. You are, by the nature of Your Identification, AND unchallenged use of the worthless fiat paper money you carry, a “CORPORATION”, “ARTIFICIAL COMMERCIAL PERSON” BANC CHATTEL, and the PROPERTY OF THE “PRIVATE” FEDERAL RESERVE BANC; and&nbsp;, the FEDERAL RESERVE is not the
+
+Page 70 of 95
+
+PROPERTY of Our Federal Government, but is, in fact, the Property of PRIVATE STOCK HOLDERS. See Bretton Woods Agreement. Those individuals in Our Government who allowed this attack upon our economic foundation, has committed “Treason” at the highest level against the People and Our Sovereignty. These acts of Treason continue today by those individual trustees who have taken an oath to uphold and defend Our Constitution, but instead continue to take part in the enforcement of fraudulent treasonous foreclosures, treasonous jailing of patriots for protesting, THEIR FRAUDULENT ACTS, and a list to long to mention here. They are adhering to Our ENEMIES, giving them Aid and Comfort. ___This is American Common Law Treason.___
+
+The following includes, but is not limited to a list of THE specific words and phrases defined and used by the BANC system which is foreign to the “Private Rights of the People” and Their American Common Law Constitutions. These WORDS AND PHRASES have been used to identify the foreign subjects, the foreign jurisdictions, and the COMMERCIAL power enforced by the many LEGAL agencies over the subjects of each word or phrase;
+
+MOST THINGS, WORDS, PHRASES, AND PLACES FOUND IN __THE CROWNS __BOX
+
+The act of “BANCING”; have a“BANC ACCOUNT”; live in “THE UNITED STATES” (D.C.) March 26, 1790"; are a citizen identified in “THE 2ND NATURALIZATION ACT January 29, 1795, Stat II Chap. XX, Section 1.”; have a “LAND PATENT’; are a “citizen of the UNITED STATES”; “EMPLOYE OF D.C.”; a “TAXPAYER” (1862) SEE 26 USC § 6331(a); claim your rights under the “CIVIL RIGHTS ACTS” 1866; are a “CIVILIAN” (subject to the ROMAN CIVIL LAW); have a “MARRIAGE LICENSE” (1868) (inter marriage); are an “EMPLOYE” (Bouvier’s page 589, (1890); “The FEDERAL RESERVE ACT” (1913);
+
+Page 71 of 95
+
+The “STOCK MARKET”; a “BIRTH or DEATH CERTIFICATE” on BANK NOTE PAPER; the “PEOPLE” mortgaged by “HOUSE JOINT RESOLUTION 192 June 5, 1933"; “The People” become “BANKERS” by creating BANC “PROMISSORY NOTES”; signing a “BANK SIGNATURE CARD”; acceptance of “FEDERAL RESERVE NOTES” 1934; “BORROWER, DEBTOR”; FTB 540“resident”; “RESIDENT of the STATE”; “TENANTS IN FEE SIMPLE”; “person”;“ subject to All the AMENDMENTS To the Constitution of the United States of America, starting with the so-called 11th amendment on”; use of TITLE 42 § 1983; NAME IN “ALL UPPER CASE”; subject to “MOTOR VEHICLE CODE”; “DRIVER’s LICENSE”; “operator of MOTOR VEHICLE (1925); “MOTOR VEHICLE REGISTRATION AND PINK SLIP”; “RESIDENTIAL PROPERTY TAX”, “ INCOME TAX”;“SOCIAL SECURITY” 1935; live in a “ZONING IMPROVEMENT PLAN ZIPCode”26USC §7621 TAXING DISTRICT; “OBAMA CARE”; 28 U.S.C. CODE RULE 1 THROUGH 81 combining law and equity; “THE PATRIOT ACT”; &amp; c…….
+
+If you find yourself identified by any one of the subjects, living in the geographies, in agreement with the titles, or names, or have signed any one or more of the applications, or used any one or more as your authority to exercise a privilege ___in this box___, your private property, Personalty, is, and you have agreed to be and are, the owned subject of a foreign power, well known to the Founding Fathers. These things and others in their likeness are the very cause that brought about the creation and enforcement of the “Magna Charta”, and the “Revolution and Declaration of Independence on July 4, of 1776, and all the other Sources of Our White Sovereign Liberties!!! ___Publius___
+
+End of Box
+
+These words and others have been used by the __money changers__,
+
+THROUGH A GENERALLY ACCEPTED PRACTICE OF SILENT
+
+FRAUD, to transform the __White_People and ‘Their Posterity ___back into the
+
+Page 72 of 95
+
+very thing that the Founding Fathers fought and died to free themselves and their Posterity from. Simply stated, SUBJECTS of the Crown, and the live stock of a “Cestui Que Trust” under the Pope, dating back to the 1300s and the time of “Magna Charta”:
+
+ENTER THE WORDS, AND PHRASES; CIVIL, CIVIL LAW, CIVIL CODE, CIVILIAN:
+
+These words emanate from a time controlled by EMPERORS AND TYRANTS. The most noted being JUSTINIAN. Hence the word “Justice” or “Equality” or “EQUITY” or “contract”.
+
+CIVIL LAW and its variations, emanated from the writings of the subject underlings of the EMPEROR JUSTINIAN, which writings were founded upon the EMPEROR, and the roman citizens subject status, but, which has no authority or Principal what so ever over the American Common Law Rights of “We The White People” so long as We do not engage the Public At Large. This CODE SYSTEM was completely unknown to the Principles of Our Republican Form of Government. A search of all The Sources of Our Liberties, will show the complete lack of such a CODE used as authoritative reference by any of Our Founders, in Their Revolutionary Act of establishing the Sovereignty and the Private Prerogatives of “We The White People”; Or, for the enforcement by Our Founders to, of, or from the “ROMAN CIVIL LAW”.
+
+Our ___Republican Form of Government ___was Secured by the Federalists and was founded upon Our God Given Unalienable Rights, not by any dictate of man or his “civil codes”. The child of 3 is no more equal in common sense to a common law adult of 12, who, is, in comparison, not equal to a civil code adult of 18, who, is not equal to a Common Law Citizen of a State at the sovereign age of 25. In Our American Common Law, equality is an attribute of the highest example of the Righteous Law, it’s Our execution of self, as a Vehicle for God by each of Us upon Our fellow Man.
+
+Page 73 of 95
+
+But, enter the CIVIL RIGHTS ACTS (1866) (anti slavery) applying only to the black slaves, now “freedmen”; and for the sake of repetition and redundancy; now takes on the attributes of a Monarchal Democracy.
+
+The term “civil law” appears but twice in the “Federalists Papers”, first in Hamilton №81 p. 488, but is used expressively only to distinguish a “civil-law mode of trial”, as opposed to and distinguished from “criminal trial”, but no mention or reference was ever made to any writing or other rule identified as a “CIVIL CODE”; Second, in Hamilton 83, it appears as “proceeds in general either according to the course of the canon or civil law, without the aid of a jury.” Again, its reference is to a feudal system, but without reference to any “CIVIL CODE” from Our Founding White Federalists Fathers.
+
+__Since its creation, The phrase “THE UNITED STATES”, __has been enlarged and used as silent Fraud, to identify and define more things than can reasonably be calculated; and in fact has been given several different meanings by the Supreme Court: From at least (1790), just following the 1st Naturalization Law of March 26, 1790. This phrase ‘UNITED STATES’ has been used to include but not limited to identify some of the following:
+
+‘THE DISTRICT OF COLUMBIA’, which is by Law and Principal, the MUNICIPAL CORPORATION Of, By and For the White European Citizens of a State United, who in their Sovereign capacity established to the World, a Trust that in Law and Principal is its CHARTER, and which created and became the Peoples CORPORATION, improperly named, “THE UNITED STATES” by Act of July 16, 1790;
+
+Our miss guided, carrot following Trustees have become the bullies on the Block called Earth, and by and through their coalition of tyrants have used its CORPORATE NAME “THE UNITED STATE”, to enforce its CORPORATE JURISDICTION, and seize other “PROPERTY HOLDINGS” OVER ANYTHING AND EVERYTHING that does not
+
+Page 74 of 95
+
+have the Wisdom, or THE Power to repel its onslaught; such things and places include but are not limited to the following:
+
+NATIONAL PARKS; Demesne Manors of the People ‘PORTO RICO’ Ceded to the United States On September 29, 1898 (Treaty of Peace); also including ‘GUAM’; ‘AMERICAN SAMOA’; and the ‘VIRGIN ISLANDS’; and By Article I§8, Cl 17, US Constitution: all ‘US FORTs and US ARSENALS’; ‘US MAGAZINES’; all ‘US DISTRICT COURTS’ and ‘The District Court of the United States’; And by Article IV§3, Cl. 2; THE 3 TO 12 MILE LIMIT OFF SHORE; the Boundary Lines separating the 50 States from each other and the adjoining Sovereign Nations; US citizens, domestic or abroad; EVEN A US BATTLESHIP CRUISING IN FOREIGN WATERS; and a ‘US EMBASSY’ ON FOREIGN SOIL. THIS PHRASE has also been used throughout the 50 U.S. CODES to define AND ENFORCE its “COMMERCIAL/ADMIRALTY/ and MARITIME” jurisdictions within and OVER some one or All of the Several 50 States of the American Union. See ___Hooven vs.Evatt ___324 U.S. 652,671,672 (1944); Also see TITLE 18 UNITED STATES CODE §§ 5, &amp; 7; just to name just a few.
+
+However, for the clarification of all you ignorant civil war type rebels who have taken part in the unauthorized acts of rebellion against the corporate UNITED STATES because of its far overreaching Land acquisitions in Your State, you might take a careful look at the following Supreme Court case: in&nbsp;.___Collins vs. Yosemite Park Co. ___304 U.S. 518,530 (1938); whatever the general power and jurisdiction of the UNITED STATES might be, in the act of acquiring property, and to exercise its jurisdiction over a NATIONAL PARK, THIS Court fails to see any evidence of a constitutionally authorized Fort, Arsenal, or other needful building that is or will be constructed on or in the Park giving the US total jurisdiction over the entire Park. It is not clear from the claim of the United State just how It has manage to acquired possession and control over this Park solely within the exterior boundary of that State, but it did not come
+
+Page 75 of 95
+
+within the operation of Article I § 8, Cl 17; and it is evident that unless a US fort, arsenal, or other needful building can be found there, it follows by the prohibitions of the constitution on this subject, that this, or any other Park of like kind, does not belong to the US, but, in fact of Law, belongs to the White Citizens of This State and not otherwise. This overreaching jurisdiction is just another ploy, exercised by the BANC To take back the People, and Their Land, and exterminate this Annoying experiment of the Sovereign People, and reestablish the ultimate, and unlimited Royal Crown jurisdiction over the Planet.
+
+In relation to the rights and property of our Government, the following must be considered;
+
+“Inalienable”&nbsp;. According to Noah (1828)..the dominions of the king are inalienable; by this principal, The title to the Lands of the Crown of England are “Allodial” and held by military force and have not been transferred to a subject accept by Royal Grant, or be taken by the king of Spain accept by war. The Unalienable Rights exercised by Americans are of God and intended to be exercised and shared by all The People, all countries and all faiths and all races. These Rights are alienable as applied to the Kings power who can do what ever he wishes as long as his subjects are happy. There rights are only privileges that emanate from the Crown as they have no concept of Unalienable; On the other hand, under Our _Republican form of Government_, the Citizen of the State is not the fountain of Rights which flow from God the Creator, but the vehicle for the passing on The Wisdom and Sovereignty. The Citizen, by the Preamble to Our Federal Constitution, has the Duty and Obligation to teach this Principal to the Posterity, in order that these Unalienable Rights continue to be enforceable and perpetual. Publius
+
+We now come to the specific Words and Phrases used by the Founding Federalists to establish the most People Friendly Government, following the consummated Act of Rebellion1776:
+
+Page 76 of 95
+
+__“Federal” /”Federated”/”Confederated” _In The United States of America___, as the Constitution of the United States of America; __Confederated __and United in a __League __as in the United States of America, Leagued between Princes or States; To Unite as Princes or States; a Union of Princes or “Citizens of the State” in “The United States of America”; a Federal Union of Federal States, composed of White Citizens of each of the Federal States; see Noah Webster (1828) Article IV Section 4 states: “The ___Federal ___United States of America shall guarantee to every State of this Union a ___“Republican Form of Government”. ___As Opposed to a “__DEMOCRACY__”;…
+
+The following quote is an actual quote from the WWII Training Manual, that was used as a propaganda machine to convince another large number of a combination of both State and US Citizens and citizens to give their life for a foreign BANC. UNDERLINE, HIGHLIGHT and some corrected Capitalization added for proper emphasis:
+
+The following is taken from the TRAINING MANUAL} WAR DEPARTMENT №2000–25} WASHINGTON, November 30, 1928. CITIZENSHIP Prepared under direction of the Chief of Staff. This manual supersedes Manual of Citizenship Training. The use of the publication “The Constitution of the United States,” by Harry Atwood, is by permission and courtesy of the author. The source of other references is shown in the bibliography.
+
+120. Comparative analysis. — The following comparative analysis shows the Principal Characteristics of the three forms of government: ___Autocracy: ___Authority is derived through heredity. People have no choice in the selection of their rulers and no voice in making of the laws. Results in __arbitrariness, tyranny, and oppression__. Attitude toward
+
+Page 77 of 95
+
+property is feudalistic. Attitude toward law is that the will of the ruler shall control, regardless of reason or consequences.
+
+___Democracy_: __A government of the masses. Authority derived through mass meeting or any other form of “direct” expression. Results in mobocracy. Attitude toward property is __communistic __— negating property rights. Attitude toward law is that the will of the majority shall regulate, whether it be based upon deliberation or governed by passion, prejudice, and impulse, without restraint or regard to consequences. Results in demagoguism, __license, agitation, discontent, anarchy__.
+
+___Republic_: __Authority is derived through the election by the ___People ___of public officials best fitted to represent ___Them___. Attitude toward Property is ___respect for laws and Individual Rights___, and a sensible economic procedure. Attitude toward Law is the administration of justice in accord ___with fixed principles ___and established evidence, with a strict regard to ___consequences___. A greater number of ___Citizens ___and extent of territory may be brought within its compass. Avoids the dangerous extreme of either __tyranny or mobocracy__. Results in Statesmanship, Liberty, Reason, Justice, Contentment, and Progress. Is the “standard form” of government throughout the World. A Republic is a form of government under a Constitution which provides for the election of (1) an Executive and (2) a Legislative body, who working together in a Representative capacity, have all the power of appointment, all power of legislation, all power to raise revenue and appropriate expenditures, and are required to create (3) a Judiciary to pass upon the justice and legality of their governmental acts and to recognize (4) ___certain inherent Individual Rights___.
+
+Take away any one or more of those four elements and you are drifting into autocracy. Add one or more to those four elements and you are drifting into democracy. — _Atwood._
+
+121. Superior to all others. — Autocracy declares the divine right of kings; its authority can not be questioned; its powers are arbitrarily or unjustly administered.
+
+Democracy is the “direct” rule of the people and has been repeatedly tried without success.
+
+Page 78 of 95
+
+Our Constitutional Fathers, familiar with the strength and weakness of both autocracy and democracy, with ___fixed principles ___definitely in mind, defined a representative Republican Form of Government. They “made a very marked distinction between a ___Republic ___and a __democracy __\* \* \* and said repeatedly and Emphatically that They had founded a Republic.”
+
+Madison, in the Federalist, emphasized the fact that this government was a ___Republic ___and not a __democracy__, the Constitution makers having considered both an autocracy and a democracy as undesirable forms of government while “a ___Republic ___\* \* \* promises the cure for which we are seeking.” In a democracy the __people __meet and exercise the government in person. In a ___Republic ___They assemble and administer it by Their respective agents. — _Madison._
+
+The advantage which a Republic has over a democracy consists in the substitution of representatives whose enlightened views and virtuous sentiments render them superior to local prejudices and to schemes of injustice. — Madison.
+
+The ___American form of government ___is the oldest republican form of government in the world, and is exercising a pronounced influence in modifying the governments of other nations. ___Our Constitution has been copied in whole or in part throughout the earth.___
+
+122. No direct action. — Under the representative form of government there is no place for “direct action.” The inherent characteristic of a republic is government by representation. The people are permitted to do only two things; they may vote once every four years for the executive and once in two years for members of the legislative body. __[They also have the Right and Power to try and hang traitors; Publius]__
+
+123. Methods of representative government. — Constitutional government may be set up under either a written or an unwritten Constitution.
+
+_An unwritten constitution. _— An unwritten constitution consists largely of customs, precedents, conditions, and understandings, and is
+
+Page 79 of 95
+
+constantly changing; any party in power may enact legislation materially affecting the methods of government and the political rights of citizens.
+
+_A written constitution._ — In the United States the Rights of the [White] People are fully protected and the functions of government strictly defined in a written document — the Constitution. It is called a “rigid Constitution” ___because the legislative power has no authority to change it.___
+
+It is subject to amendment only by the authority and action of the people through their representatives in Congress. __[But only when a deviation from the Truth and the Founders intent is discovered; Publius]__
+
+The Congress, whenever two-thirds of both houses shall deem it necessary, shall propose amendments to this Constitution, or, on the application of the legislatures of two-thirds of the several states, shall call a convention for proposing amendments, which in either case, shall be valid to all intents and purposes, as part of this Constitution, when ratified by the legislatures of three-fourths of the several states, or by conventions in three-fourths thereof, as one or the other mode of ratification may be proposed by the Congress; provided \* \* \* that no state, without its consent, shall be deprived of its equal suffrage in the Senate. — _Constitution, Article V. ____[Accept where that amendment violates the Unalienable Rights and or Sovereignty of the White State Citizen; Publius]___
+
+Since the adoption of the Constitution our Nation has increased in population from 3,000,000 to more than 125,000,000 and has developed from a wilderness to the greatest industrial nation in the world. ___The adequacy of our Constitution is evidenced by the adoption of only 19 amendments to modify the principles set forth in the original document. [now XXVI acts of Treason]___
+
+As a wall of protection our written Constitution stands between the [White] people and those who, through lust for power, or the temporary passions of the moment, or for any other reason, would trespass upon the rights of person or property.
+
+Page 80 of 95
+
+124. Consent of the governed. — The original desire of the colonists was “only to have a voice” in the affairs of the Government. Governments are instituted among men, deriving their just powers from the consent of the governed \* \* \*. We have petitioned for Redress in the most bumble terras: Our repented Petitions have been answered only by repeated tyranny. — _Declaration of Independence._
+
+The situation so developed that the colonists totally dissolved “all political connection between them and the State of Great Britain,” and established a new form of government based upon the “consent of the governed.” “Consent” in the drafting and approval of the instrument of government and its subsequent amendment was a new feature.
+
+125. “American Bill of Rights.” — When the Constitutional Convention was drawing to a close several members who opposed the adoption of the Constitution suggested a number of amendments, which, they declared, “would make the Constitution acceptable to them.”
+
+While the Constitution already contained many provisions for the protection of the rights of the individual citizen, various States desired that it contain further written stipulations that would remove every possibility of doubt and prevent disputes by “leaving no matters to inference, implication, or construction.”
+
+It was contended that the provision of the suggested Bill of Rights contained “various exceptions not granted \* \* \*. Why declare that things shall not be done which there is no power to do?”
+
+The tyranny of legislature is a most formidable dread at present, and will be for many years. That of the Executive will come in its time, but it will be at a remote period. — Madison.
+
+Subsequently, many of these features were incorporated in the first 10 amendments, adopted in 1791 as supplements to the Constitution, and are called the “American Bill of Rights.”
+
+The first 10 amendments embodied “guaranties and immunities which are inherited from our English ancestors.” — Supreme _Court (1897)._
+
+Page 81 of 95
+
+126. Enumeration of constitutional rights. — Individual rights formally guarded _by _original constitutional provisions:
+
+No ex-post facto laws.
+
+No bill of attainder.
+
+No suspension of privileges of habeas corpus.
+
+Trial by jury and at places where the crimes were committed.
+
+Definition of treason and limiting punishment.
+
+Guaranty of immunity and privileges of all States to the citizens of each State.
+
+No religious test before admission to public office.
+
+To which the Bill of Rights added:
+
+Right of peaceable assembly and petition to the Government for redress of grievances.
+
+Freedom of religion, speech, and press.
+
+Right of the people to keep and bear arms — militia.
+
+Quartering of soldiers only as provided by law.
+
+Protection against unreasonable searches.
+
+Right of accused to indictment by grand jury with certain exceptions.
+
+No compulsory testimony against self.
+
+No deprivation of rights without due process of law.
+
+No confiscation of private property for public use without just compensation.
+
+Right of a speedy and public trial by an impartial jury.
+
+Right to demand information concerning the nature and cause of accusation.
+
+To be confronted with witnesses against him.
+
+Compulsory process for obtaining witnesses in his favor.
+
+Have assistance of counsel for defense.
+
+Right of trial by jury in suits of common law where value and controversy shall exceed $20.
+
+Protection of verdict of said jury.
+
+No excessive bail required.
+
+No imposition of excessive fines.
+
+No infliction of cruel and unusual punishment.
+
+Rights retained by the people shall not be denied nor disparaged.
+
+Page 82 of 95
+
+Powers not delegated to the United States by the Constitution nor prohibited by it to the States are reserved to the States or to the people. ___[Right to receive gold and silver Coin in payment of Debt; Article I §10 C. 1Publius]___
+
+127. Government by representation. — The framers of the Constitution were opposed to direct government. The remedy sought was to be found in representative government. Madison declared that the object to which their efforts wore to be directed was how to prevent a majority rule and to preserve the spirit and form of popular government. The representative form of government was their answer.
+
+The United States shall guarantee to every State in the Union a republican form of government. — _Constitution, Article IV, Sect. 4 _Sovereignty was placed in the hands of the ___People___. No authority was delegated to any department either of National or State Government except by the ___People ___through the provisions contained in the Constitution.
+
+There could be no question but that by a republican form of government was intended a government in which not only would the ___people’s ___representatives make laws and the agents administer them, but the ___people ___would also directly or indirectly choose the Executive. — _Cooley.____” ___WWII training manual Supra.
+
+It must be stated here that although the preceding manual comprehends many of the necessary principles or Our Federal Union, it tends to Error when stating the Principal of the “Amendment” section of the Constitution and instead, created the presumption that Our Constitution could, or has been “modified” for the benefit of the People??? This statement could not be further from the Truth. I will now paraphrase a quote from the Supreme Court in ___United Mine Workers v. US ___330 U.S. 258 (1947, Footnote 23; where it address the use of common words like “person, when applied to “The Sovereign”:
+
+“The most general words that can be devised (for example, any person or persons, bodies politic or corporate) affect not him (the
+
+Page 83 of 95
+
+sovereign) in the least if they may tend to restrain or diminish any of his righ<a href="https://supreme.justia.com/cases/federal/us/86/227/case.html" target="_blank">ts or interests.”</a>
+
+___Dollar Savings Bank v. United States___<a href="https://supreme.justia.com/cases/federal/us/86/227/case.html" target="_blank">, </a>19 Wall. 227<a href="https://supreme.justia.com/cases/federal/us/86/227/case.html#239" target="_blank">, 86 U. S. 239 </a>(1873).
+
+The Unalienable Rights and Prerogatives of the Sovereign White Citizen of the State established at the Revolution of 1776, have been replaced with COMMERCIAL AND CIVIL CODES, RULES, AND REGULATIONS, enacted in the years following the CIVIL WAR AND RECONSTRUCTION 1866 through Present day, that by their enforcement by the present treasonous administration, has restrained and in fact eliminated and replaced all the Prerogatives, Sovereignty and State Citizenship of the White People, and in Their place stand GOVERNMENT ENACTED CIVIL RIGHTS. CIVIL PENAL COMMERCIAL AND POLITICAL CODES. Publius
+
+In this present Day the fiat financial monarchy, having no Constitutional Foundation, through __“_erroneous” ___legislation, both state and united states, has presumed and acquired the Sovereignty over the “White Citizen and His Exempt Personalty [see ___Pollock v. Farmers Loan and Trust ___157 U.S. 429,634(1894)]. The Sovereign White People have been unrecognizably blended into all the other subject classes of people becoming general “taxpaying resident aliens” subject to the general commercial jurisdiction of the corporate state and THE corporate united states. Publius
+
+__“Republic” _In the United States of America ___“a State in which the exercise of the political sovereign power is enforced exclusively by the Constitutionally qualified Elected representatives of and by the ___People ___as “___White Citizens of the State___”; but as ___Elected Trustees___, this power is “Delegated”, not presumed, and is expressly limited to the Principal and actual ___Intent ___of the ___Founders ___as meticulously worded by Them in the limited Articles of the Constitution and not otherwise; See Article X of Amendment (1791) that states: “The Powers not delegated to the United
+
+Page 84 of 95
+
+States by the Constitution, nor ___Prohibited ___by it to the States are reserved To the States respectively, or to the ___People___.” Publius
+
+“It has been several times truly remarked that bills of rights are, in their origin, stipulations between kings and their subjects, abridgements of ___prerogative ___in favor of privilege, reservations of rights not surrendered to the prince. Such was MAGNA CARTA, obtained by the barons, sword in hand, from King John. Such were the subsequent confirmations of that Charter by succeeding princes. Such was the PETITION OF RIGHT assented to by Charles I., in the beginning of his reign. Such, also, was the Declaration of Right presented by the Lords and Commons to the Prince of Orange in 1688, and afterwards thrown into the form of an act of parliament called the Bill of Rights. [Keep in Mind that all those Claims of Liberty were demands of the White European People against Their Sovereign Prince.] It is evident, therefore, that, according to their primitive signification, they had no application to constitutions professedly founded upon the Power of the People, and executed by their immediate representatives and servants. ___Here___, ___in The United States of America___, in strictness, ___the White European People surrender nothing___; and as They retain “Everything”, They have no need of particular Reservations. ___``We, The People of the United States, to secure the Blessings of Liberty to Ourselves and our Posterity, do ordain and establish this Constitution for the United States of America.’’ ___Here is a better recognition of popular rights, than Volumes of those aphorisms which make the principal figure in several of our State bills of Rights, and which would sound much better in a treatise of ethics than in a constitution of government [OR a Dictionary]. But a minute detail of particular Rights is certainly far less applicable to a Constitution like that under consideration, which is merely intended to regulate the general political interests of the Nation, than to a constitution which has the regulation of every species of personal and ___private ___concerns.&nbsp;…..This Country and this People seem to have been Made for Each Other, and it appears as if it was the design of Providence, that an inheritance so proper and convenient for a band of brethren, united to each other by the strongest
+
+Page 85 of 95
+
+ties, should never be split into a number of unsocial, jealous, and alien sovereignties. Similar sentiments have hitherto prevailed among all orders and denominations of men among us. To all general purposes We have uniformly been one People each individual Citizen everywhere enjoying the same national Rights, Privileges, and Protection. As a Nation We have made Peace and War; as a Nation We have vanquished Our common enemies; as a Nation We have formed Alliances, and made Treaties, and entered into various Compacts and Conventions with foreign States.
+
+A Strong sense of the Value and Blessings of Union induced the People, at a very early period, to institute a Federal Government to Preserve and Perpetuate it. They formed it almost as soon as They had a Political existence; nay, at a time when Their habitations were in flames, when many of Their Citizens were bleeding, and when the progress of Hostility and Desolation left little room for those Calm and Mature Inquiries and Reflections which must ever precede the Formation of a Wise and well-balanced Government for a Free [__White__] People. It is not to be wondered at, that a government instituted in times so inauspicious, should on experiment be found greatly deficient and inadequate to the purpose it was intended to answer.
+
+This intelligent People perceived and regretted these defects. Still continuing no less attached to union than enamored of Liberty, They observed the danger which immediately threatened the former and more remotely the latter; and being persuaded that ample Security for Both could only be found in a National Government more wisely Framed, They as with one Voice, convened the late Convention at Philadelphia, to take that important Subject under consideration.
+
+This convention composed of ___Men ___who Possessed the confidence of the People, and many of whom had become highly distinguished by Their Patriotism, Virtue and Wisdom, in times which tried the Minds and Hearts of Men, undertook the arduous Task. In the mild season of Peace, with Minds unoccupied by other subjects, They passed many months in cool, uninterrupted, and daily Consultation; and
+
+Page 86 of 95
+
+finally, without having been awed by Power, or Influenced by any Passions except Love for Their Country, They presented and recommended to the [___White___] People the plan produced by Their joint and very unanimous Councils. Publius №3 for ___“The Constitution of the United States of America”.___
+
+“Principal”, in a general sense, the cause, source or origin of anything; a general truth; human nature; foundation such as cause and effect; motion or action; leading; more important; chief; a common law; of royal blood; of sovereignty; “In the United States of America: “A White Citizen of the State” Domiciled of His Demesne/Manor/Castle while in the exercise of His/Her Private Unalienable Rights, is the Principal. _Publius_
+
+Government Property
+
+When the government, either State or Federal or National claims property, Public or Private, real or otherwise, foreign or Domestic, the first Principal of Our Federal System, created and vested by the Power of the White State Citizen through His Trust/Constitution, comes into effect. Their trustees must first cite the specific Article, Section and or Clause of its charter, the Original Constitution, vesting it or them with the specific power and the specific authority to assume jurisdiction over it and acquire it and so state the specific Purpose for its acquisition. This is called “Disclosure” that is the mandatory exposure upon the trustees and all their limited acts to be maintained in clear and unencumbered public view. All acts of the government employees, who volunteer to be the servants of the White People, must remain transparent and visible to its ‘Master Employers’, ___The White Male Citizens of the State___. This open disclosure is not voluntary but Mandatory. ___Publius___
+
+It was stated in ___Mugler v. Kansas___ 123 U.S.623 (1887) that:
+
+Page 87 of 95
+
+“There are, of necessity, limits beyond which legislation cannot rightfully go. While every possible presumption <a href="http://caselaw.findlaw.com/us-supreme-court/99/718.html" target="_blank">is to be indulg</a>ed in favor of the validity of a statute, (Sinking Fund Cases<a href="http://caselaw.findlaw.com/us-supreme-court/99/718.html" target="_blank">, 99 U.S. 718&nbsp;,) </a>__the courts must obey the constitution rather than the law-making department of government, and must, upon their own responsibility, determine whether, in any particular case, these limits have been passed__. ‘To what purpose,’ it was said in Marbury v. Madison, 1 Cranch, 137, 167, ‘are powers limited, and to what purpose is that limitation committed to writing, if these limits may, at any time, be passed by those intended to be restrained? __The distinction between a government with limited and unlimited powers is abolished, if those limits do not confine the persons on whom they are imposed, __and if acts prohibited and acts allowed are of equal obligation.’ The courts are not bound by mere forms, nor are they to be misled by mere pretenses. __They are at liberty, indeed, are under a solemn duty__, __to look at the substance of things, whenever they enter upon the inquiry whether the legislature has transcended the limits of its authority. __If, therefore, a statute purporting to have been enacted to protect the public health, the public morals, or the public safety, has no real or substantial relation to those objects, __or is a palpable invasion of rights secured by the fundamental law, it is the duty of the courts to so adjudge, and thereby give effect to the constitution. __Mugler @ p. 661.
+
+I must here give a short synopsis on the Word “Duty”, and its relationship to an “Unalienable Right” of the “White Posterity”: as I have previously stated, there is no verbiage, or definitions written or otherwise, in any case law, or legislation on the books in our Federal or State Libraries that specifically vests the power of Private Sovereignty or Private Prerogatives in any class or people other than the “White People”. All the CIVIL CODES, AND CIVIL RIGHTS ACTS, so stated from 1866 to present, acts, or vest only civil right. And, in order that the Sovereignty and Prerogatives’ shall be restored, we must trace their existence to a point of beginning and identify that specific race that they were secured to. As
+
+Page 88 of 95
+
+of this date in time, the only class ever endowed with Sovereignty, Private Unalienable Prerogative Rights are the White People in the Several States of this Federal Union (1776). ___Publius___
+
+It therefore follows that it was, and still is the solemn “__Duty__” of all Our Trustees to protect and defend the Posterity from any invasion, foreign or domestic, against Our “State Citizenship”, Our Demesne Land and Allodial Titles, Our Gold and Silver Coin, Our Republican Form of Government, and Our Writ of Error; ___Publius___
+
+__“Duty”: __As we had occasion to observe in California v. San Pablo &amp; T. R. Co. 149 U.S. 308, 314, 37 S. L. ed. 747, 749, 13 Sup. Ct. Rep. 876, ‘the __duty __of this court, as of __every __judicial tribunal, is limited to determining __rights __of [179 U.S. 405, 409] persons or of property, which are actually controverted in the particular case before it. When, in determining such __rights__, it becomes Necessary to give an opinion upon a question of __law__, that opinion may have weight as a precedent for future decisions. But the court is not empowered to decide moot questions or abstract propositions, or to declare, for the government of future cases, principles or rules of law which cannot affect the result as to the thing in issue in the case before it. No stipulation of parties, or counsel, whether in the case before the court, or in any other case, can enlarge the power or affect the ___duty ___of the court in this regard. ‘___TYLER v. JUDGES OF THE COURT OF REGISTRATION, ___179 U.S. 405,409 (1900)
+
+__“Writ of Error”: __“A writ of Error is a writ of Right which is grantable ___ex debito justitiæ___;&nbsp;.&nbsp;.&nbsp;. It is the constitutional right of every citizen to have his case reviewed in one form or another by a court of error:. A suit at law can be reviewed only on writ of error;&nbsp;.&nbsp;.; Bouvier’s Law Dictionary, (1914) p. 210. For reference, it was the direct result of the CIVIL RIGHTS ACTS (1866) that unleashed a hoard of miss guided black people to begin their arduous task of assimilating themselves into a sovereignty that did not recognize them. And by their plight began to
+
+Page 89 of 95
+
+move their court actions via the “Writ of Error”. Because this Writ was mandatory upon the Supreme Court, it was inundated beyond control with a number of Writs of Error beyond its capacity to hear. This prompted the legislature to intervene and vest the Supreme Court with power to determine whether the case before it qualified in all respects under the principal of a Writ of Error. But instead of the court distinguishing those cases of civil rights and distinguishing them from Unalienable Rights and Allodial Titles under the American Common Law, the miss guided Court of Error simply decided to ignore this Writ of Error, and miss quote the act of Congress that did not abolish the Writ of Error but instructed that court to distinguish between Error and Appeal/Certiorari.
+
+Wherefore, when any attack upon the Security of the Rights and Titles vested in the Sovereign White People Citizens of the State and Secured by the Constitution are involved, it is the __Duty __of the Legislature, the Executive and the Courts to protect and defend the Unalienable Rights of the White Citizen; and, the Writ of Error which are all synonymous terms; accept that the “Writ of Error, Like the Allodial Titles to Land, Like the Private Unalienable Prerogative Rights of Life, Liberty and Private Property, and last but not least the “White Citizen of the State” have all been erroneously and Treasonously eliminated from Our Republican Federal System by acts of the Legislatures purporting to be Lawful, but in fact and Principal have all but destroyed the People, Their Rights, their Sovereign Status, and The Posterity, from which I now Stand. ___Publius___
+
+__“Title” __Exclusive Possession; (Noah 1828) Parallel to Right, Unalienable and Prerogative: ___In the United States of America___, the highest human ___Title ___is a “___Citizen of the State___” 2 Dall @455; followed by the Union of ___Citizens ___which is the ___State___; followed by the highest ___Title ___to ___Land ___within the ___State ___which is “___Allodial___” Demesne/Demain Manor/Castle, all of which are ‘Secured’ by God and the ___“Constitution of the United States of America (1788)”___; as confirmed in ___Miranda vs. Az ___384 U.S. @ 491(1965).
+
+Page 90 of 95
+
+By this Principals of Our Government, all Our Trustees under Oath, State and Federal, Elected or appointed, and their Agents, owe their political existence to the Will of the White European State Citizens; and by this fact of Law, there is no Real Property that is exclusive to these Trustees accept for the express purpose of its use to enforce Our American Common Law throughout the several States, and to be an Example of Truth to the World; But, when in the course of human events it becomes necessary for this White European People to throw off the CHAINS OF OPPRESSION, and neutralize the many Frauds and acts of Treason committed against them and Their Sovereignty; the trustees of Their Government will be charged and held accountable; and, because the People are the final Repository of all the Power, all the Land, and all its Fruits, and when this People decide that this government has exceeded its power and authority, and conspired to exterminate Them as the People, They are at Will, and have a Duty to The Posterity, by and under the God given Grant of Sovereignty, been vested with the power to exterminate those Insidious, Treasonous individuals, and there hold on the Land they operate from.
+
+In Repetition:
+
+__“Allodial” __Pertaining to allodium; freehold; free of rent or service; held independent of a lord paramount; opposed to feudal. Blackstone.
+
+__Freehold Estate__; land which is the absolute property of the owner; real estate held in absolute independence, without being subject to any rent, service, or acknowledgment to a superior. ___In the United States of America___, Most Lands are Allodial. Noah (1828). ___In the United States of America ___the Right to hold this Allodial Title to the Private Land in one of the Several Federal States of the American Union is the Prerogative of the ___White People of the United States of America ___as a qualified “___Citizen of the State of His or Her Demesne Domicile___”, which then is equal to the
+
+Page 91 of 95
+
+“__Crown Land__” in Europe as Demesne or Demain. ___But does not apply to any land in use by Our Government. Publius___
+
+So, even the terms of, a “Land Patent” does not apply to GOVERNMENT held land: THIS _feudal _PHRASE came here with the Founders, but like the term ”tenants in fee simple” is a creature of the _Crown of England, _used to identify the highest land title issued by the Crown to one of his _subjects_. ___In the United States of America___, the executive authority of both State and Federal Government, have ___presumed ___to be the fountain from which this highest _feudal _title to land is issued.
+
+They call this title a “Land Patent”. A Land Patent is, like a ___subject___, a creature of a feudal system such as England, where the king is the possessor of all the Land in Allodium, and has the ultimate prerogative to issue this Land Patent to a subject of his own choosing, or to void said Patent at his own prerogative. Therefore a _Land Patent _in The United States is nothing more than a sub title that the government has issued under many different treaties or claims to others having no sovereign Prerogatives to the Allodial Title OF Our “Crown Land”.
+
+But in ___the United States of America___, even this once acquired Land Patent has been hidden and replaced with things like “DEED” or “TRUST DEED”; or, “TAX DEED”, or “RESIDENTIAL TAXABLE PROPERTY”, and subject to a “RESIDENTIAL PROPERTY TAX ASSESSOR”; among others.
+
+In repetition:
+
+Herein We find the second greatest dilemma of Our Time!!! Just what should the title to the Land assigned under Articles I and IV of the Constitution to the Federal Governments look Like, and what “Words” in Law, properly describe It?????
+
+Page 92 of 95
+
+Because the Constitution is, by its Principal and Application, a “Trust”; Hamilton №65; which sole purpose is to Secure the Unalienable Rights to the White People and Their Posterity, it then follows that the Peoples Elected agents under that Trust are, “Trustees”, [Madison, Federalist №46] then and all the Land held in Trust or assigned from that Trust under authority of the White People to the agencies for express purposes under the Trust, are, “Trust Land”; So, How about “Trust Land of the White Citizens of the several States”!!!
+
+And subject to Their Sovereign Jurisdiction.
+
+Madison continued; “The federal and State governments are in fact but different agents and trustees of the people, constituted with different powers, and designed for different purposes. The adversaries of the Constitution seem to have lost sight of the people altogether in their reasoning’s on this subject; and to have viewed these different establishments, not only as mutual rivals and enemies, but as uncontrolled by any common superior in their efforts to usurp the authorities of each other. These gentlemen must here be reminded of their error. They must be told that the ultimate authority, wherever the derivative may be found, resides in the people alone, and that it will not depend merely on the comparative ambition or address of the different governments, whether either, or which of them, will be able to enlarge its sphere of jurisdiction at the expense of the other. Truth, no less than decency, requires that the event in every case should be supposed to depend on the sentiments and sanction of their common constituents. Many considerations, besides those suggested on a former occasion, seem to place it beyond doubt that the first and most natural attachment of the people will be to the governments of their respective States.”
+
+Page 93 of 95
+
+__Treason__…. I now ask these 7 questions in order for you, as a “Trustee”, to determine whether the Sovereignty that I was Secured by the Constitution at My Birth, is still in full force and effect??? And if My Sovereignty is not, whether someone has and still is committing Treason against My Sovereignty as one of the Posterity, and all the ___White People and those of you non whites who claim equal status___!!!!!!
+
+What would the sheriff or police do in California, if they saw My Private Automobile sitting or moving on public property without a MOTOR VEHICLE license, MOTOR VEHICLE registration or MOTOR VEHICLE insurance???
+
+What would a sheriff or police in California do if he/she saw Me carrying an unconcealed firearm/weapon on Public Property???
+
+What would the IRS or FTB do if I didn’t pay an assessed tax on money they discovered I received for Completion of an Article I §10 private contract???
+
+What would the courts do when a foreign private banc foreclosed on My Private Property for not making mortgage payments with unconstitutional money???
+
+What would Homeland security do if I tried to pass the airport check point with undeclared 10k frn’s or that amount in US gold and silver Coins or both???
+
+What would the CA FTB tax authority do if I didn’t pay a “residential property tax” on my Private Demain Manor/Domicile???
+
+What would the Governor/Secretary of the STATE OF CLIFORNIA do if I demanded the issuance of a Lawful Identification for My “State Citizenship”; “Exempt Plates” and “Manufactures Certificate of Origin” for My all My Private Conveyance’s; A Certificate of Allodial Title and Exemption from Property Tax to My Private Real Property (Demain Manor/Domicile Castle)???
+
+Page 94 of 95
+
+I WOULD, most assuredly BE BRANDED AS A PATRIOT TYPE, RADICAL EXTREEMEST, ANARCHEST, TAX PROTESTOR, AND WHO KNOWS WHAT ELSE, BUT: it is ___immanently certain ___that those of YOU who took An Article VI Oath to protect and defend My Constitution who intentionally legislate, execute and judge to deny My Sovereignty My Unalienable Rights and steel My Private Property Secured by that Constitution, are, in the Eyes of God and your Creators, “We The People”, Guilty of “___Treason”!!!___
+
+In order to finalize a principal discounted by bankers, tyrants, dictators, monarchists, and other solists of the human race, I, like the other members of this American Federal Union, was, like the Founding Founders, born a “Federalist”, as this term was understood and emplemented by Them. And as such, I was also endowed by God with certain Unalienable Rights secured by Their Revolt. And by this fact in Our History, I became a member of a Sovereign Class of White State Citizens with the Right of inheritance to all the Rights, Prerogatives Exemptions, both Real and Personal Private Property, My Gold and Silver Coin, and My “Republican Form of Government. In place of these Royal Prerogatives, the Trustees and those of you who conspire with them, have instead:
+
+Replaced, no, Stolen My Rightful Inheritance of Gold and Silver Coin, and in its place have printed enough nonredeemable fiat banc paper to destroy the entire world economy; Denied and hidden My Prerogative Right to a non taxable Demesne Castle, and replaced it with a banc deed taxable residence; Denied Me My Unalienable Rights to Travel in My Exempt Carriage AND replaced it with a STATE owned LICENSABLE, TAXABLE, INSURABLE COMMERCIAL MOTORVEHICLE;
+
+Page 95 of 95
+
+Replaced My Republican Form of Government with a bastardized form of DEMOCRACY/AUTOCRACY; And Exterminated My American Common Law Rights in My Courts;
+
+And Exterminated My Sovereignty and in its place you feed me nothing but government commercial regulations;
+
+All these and more are ongoing Acts of ___“Treason” ___against the White People of the United States of America Let it be said, as before, when the People fail to learn from the Mistakes of Their Past, They, or Their Posterity are “Doomed” to repeat it.
+
+The Beginning….. Publius
