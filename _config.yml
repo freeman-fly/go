@@ -4,7 +4,7 @@ gems:
 
 # Exclude these files from your production _site
 permalink: /:title/
-name: A Sovereign Life
+name: Is It True...
 sass:
   style: :expanded # You might prefer to minify using :compressed
 
@@ -19,7 +19,7 @@ kramdown:
     # Use existing pygments syntax highlighting css
     css_class: 'highlight'
 version: v1.2.0
-avatar: https://avatars1.githubusercontent.com/u/17059350?s=400&v=4
+avatar: https://raw.githubusercontent.com/barryclark/jekyll-now/master/images/jekyll-logo.png
 google_analytics:
 exclude:
 - Gemfile
@@ -44,5 +44,5 @@ footer-links:
   googleplus: # anything in your profile username that comes after plus.google.com/
 
 
-description: My Journey to Sovereignty
+description: Everywhere I go- People Wanna Know
 
